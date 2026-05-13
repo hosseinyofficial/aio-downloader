@@ -7,6 +7,314 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 01:23
+---
+
+## thisisermia — post 60
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Finally we have been together for 365 days and I have loved u for more than a year ermiaaaa🩷
+</div>
+
+## persian_trend_official — post 14080
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14080_1778709203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به این وضعیت اقتصادی می‌گویید امنیت؟ امنیت کجاست وقتی یک پدر شرمنده زن و بچه‌اش است چون سفره‌اش خالی مانده و حقوقش حتی کفاف اجاره خانه را نمی‌دهد؟
+
+امنیت کجاست وقتی جوانی نمی‌تواند یک متر زمین بخرد و رؤیاهایش زیر بار تورم و فساد دفن شده است؟ امنیت کجاست وقتی جوانی عمر و آرزوهایش را در صف مهاجرت یا بیکاری از دست می‌دهد؟
+
+امنیت اجتماعی بدون رفاه پایدار وجود ندارد. جامعه‌ای که نرخ بیکاری جوانانش بالاست تورم افسارگسیخته دارد و سرمایه انسانی‌اش مهاجرت می‌کند در واقع در وضعیت ناامنی ساختاری است. شما نام این فروپاشی را امنیت گذاشته‌اید. این تحریف واژه‌هاست واژه‌ها را از معنا تهی کرده‌اید تا واقعیت تلخ را بپوشانید.
+
+
+امنیت واقعی همان چیزی است که مردم در همه‌پرسی انتخاب خواهند کرد آزادی، اینترنت، اقتصاد سالم، و زندگی انسانی. امنیت یعنی امید به آینده نه ترس از فردا.
+
+امنیتی که شما از آن دم می‌زنید، در واقع پوششی است برای فقر، سرکوب، و بی‌عدالتی. امنیت یعنی آرامش روانی، یعنی آینده‌ای قابل پیش‌بینی یعنی فرصت رشد و شکوفایی. اما آنچه امروز مردم ایران تجربه می‌کنند چیزی جز اضطراب فروپاشی اقتصادی و نابودی امید نیست.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو: من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14078
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14078_1778709204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو:
+
+من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14077
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14077_1778709207.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢امارات متحده عربی دیدار مخفیانه نتانیاهو از ابوظبی در طول جنگ با ایران را تکذیب کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14076
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14076_1778709208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انهدام پهپاد انتحاری روسی توسط سرباز اوکراینی در لحظات آخر
+
+ویدئویی منتشر شده که نشان می‌دهد یک سرباز اوکراینی با استفاده از سلاح «آکا-۷۴» موفق می‌شود یک پهپاد انتحاری کواد را تنها لحظاتی پیش از برخورد منهدم کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14075
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14075" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 6.71 مگابایت
+
+اتاق جنگ چهارشنبه 23 اردیبهشت | جمهوری اسلامی ناو امریکایی را تهدید به حمله کرد.
+
+فورمت mp3 همیشگی
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه کلیپ تو اینستا بود داماد عروسو بغل کرد گریه کرد.
+یکی زیرش کامنت گذاشته بود مردم شانس دارن، شوهر من تو نامزدیمون مامانشو بغل کرد گریه کرد انگار میخواستن از شیر بگیرنش :))))))
+
+》ةیچرالملوک《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498394
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498394_1778709211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدرجان :))))))
+
+》Alee《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏میخوام یه کانفیگ رو سنگ حکاکی کنم، بذارم زیر خاک چند صد سال بعد یه باستان‌شناس پیداش کرد گوه گیجه بگیره.
+
+》عین جیم《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مامانم برام یه روتختی گرفته بود من رنگش رو دوست نداشتم، امروز برد پسش بده زنگ زد به من که رنگای دیگه‌ رو بگه زنه گیر داد که تعویض نداریم مامانم عصبی شد گفت خانم من که بهتون گفته بودم این عن اخلاقه هرچیزی سلیقش نیست :)))
+
+》هانی‌مون《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498391
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498391_1778709211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزئیات میزبانی بن‌زاید از نتانیاهو هنگام جنگ علیه ایران 🔹 دفتر نخست وزیر رژیم صهیونیستی تأیید کرد که دیدار نتانیاهو با بن‌زاید منجر به یک پیشرفت تاریخی در روابط بین اسرائیل و امارات متحده عربی شده است اما این دیدار تاکنون به دلیل حساسیت سیاسی و امنیتی آن…
+</div>
+
+## OfficialPersiaTwiter — post 498390
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498390_1778709213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوزیشن معمول اون آدمی که میاد و مشکلات رو حل میکنه
+
+》میکاسا《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498389
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498389_1778709213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش عراقچی وزیر امور خارجه به اظهارات اخیر نتانیاهو؛ همدستی با رژیم اسرائیل غیرقابل بخشش است
+
+🔺نتانیاهو اکنون به‌صورت علنی آنچه را که نهادهای امنیتی ایران مدت‌ها قبل به رهبری ما منتقل کرده بودند، افشا کرده است.
+
+🔺دشمنی با ملت بزرگ ایران، قماری احمقانه‌ است؛ و همکاری و همدستی با اسرائیل در این مسیر، غیرقابل بخشش است.
+
+🔺کسانی که در همدستی با اسرائیل برای ایجاد تفرقه نقش دارند، باید پاسخگو باشند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 280968
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_280968_1778709214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت خارجه امارات متحده عربی با انتشار بیانیه‌ای سفر بنیامین نتانیاهو به این کشور در خلال جنگ آمریکا و اسرائیل با ایران را تکذیب کرده است.
+
+در بیانیه وزارت خارجه امارات آماده است: «امارات متحده عربی گزارش‌های منتشرشده درباره سفر نخست‌وزير اسرائيل يا استقبال از يک هيات نظامی اسرائيلی را تکذيب می‌کند.»
+
+اين تکذيب در حالی مطرح می‌شود که رسانه‌های بين‌المللی از جمله رويترز و سی‌بی‌اس نيوز روز چهارشنبه به نقل از دفتر نخست‌وزير اسرائيل گزارش داده بودند که بنیامین نتانياهو در جريان جنگ ايران، سفری محرمانه به امارات داشته و با محمد بن زايد آل نهيان ديدار کرده است.
+
+📸GettyImages
+https://bbc.in/4tEOL0N
+@BBCPersian
+</div>
+
+## bbcpersian — post 280967
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_280967_1778709215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عباس عراقچی، وزیر امورخارجه ایران، به علنی شدن خبر سفر بنیامین نتانیاهو به امارات متحده عربی واکنش نشان داده و گفته است: «نتانیاهو اکنون به‌صورت علنی آنچه را که نهادهای امنیتی ایران مدت‌ها قبل به رهبری ما منتقل کرده بودند، افشا کرده است.»
+
+آقای عراقچی همچنین در اظهاراتی تند که می‌تواند مخاطب آن امارات و کشورهای حاشیه خلیج فارس باشد گفته است: «دشمنی با ملت بزرگ ایران، قماری احمقانه‌ است؛ و همکاری و همدستی با اسرائیل در این مسیر، غیرقابل بخشش است. کسانی که در همدستی با اسرائیل برای ایجاد تفرقه نقش دارند، باید پاسخگو باشند.»
+
+علاوه بر علنی شدن خبر سفر نخست وزیر اسرائیل به امارات در خلال جنگ، در چند روز گذشته اخبار رسانه‌های امریکایی درباره حملات نظامی مخفیانه امارات و عربستان به ایران هم بسیار بازتاب داشته است.
+
+📸AFP via Getty Images
+https://bbc.in/3R9GXqf
+@BBCPersian
+</div>
+
+## bbcpersian — post 280965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بعد از خبر حملات امارات به ایران، رویترز می‌گوید عربستان هم در خلال جنگ حملات متعددی علیه ایران انجام داده است
+
+گزیده‌هایی از مصاحبه موسی شریفی، تحلیلگر جهان عرب از ریاض عربستان را با پریزاد نوبخت ببیند که می‌گوید که عربستان برخلاف امارات به‌دنبال شکست ایران نیست و نمی‌‌خواهد توازن قدرت در منطقه دچار خلاء شود.
+
+@BBCPersian
+</div>
+
+## Lichargoo — post 24871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه همزمان با زلزله، B2 سایت موشکی یزد رو میزد، ایران اورگاسم واژینال می‌شد.
+</div>
+
+## Pesari_Ke_Konie — post 44930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+00:00
+کص ننش هر جا که هستش🙂❤️
+</div>
+
+## Tans_Footbali — post 236276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هزینه نجومی رجیستری گوشی آیفون ۱۷ و گلکسی سامسونگ
+
+رجیستری پایین ترین گیگ آیفون ۱۷ پرومکس: ۶۰۰ دلار
+
+💛@Tans_Footbali
+</div>
+
+## withyashar — post 11173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درودی دوباره یاشار جان
+میشه سوال منو ج بدین چرا ترامپ وقتی وارد چین شد نیومد ریس جمهور استقبالش در صورتی که باید بیاد ؟
+</div>
+
+## withyashar — post 11172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال N12: ترامپ داره به صدور دستور برای از سرگیری درگیری با ایران فکر می‌کنه
+@withyashar
+</div>
+
+## withyashar — post 11171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ائتلاف حاکم در اسرائیل پیشنهاد انحلال کنست در تدارک برای برگزاری انتخابات زودهنگام را ارائه کرد.
+@withyashar
+</div>
+
+## withyashar — post 11170
+
+<div align="center">
+  <img src="telegram/content/withyashar_11170_1778709216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دارن تحلیل میکنن چیکار کنن 😂😅
+@withyashar
+</div>
+
+## withyashar — post 11169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 23:53
 ---
 
