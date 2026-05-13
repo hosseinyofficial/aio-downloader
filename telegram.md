@@ -7,6 +7,480 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 23:53
+---
+
+## persian_trend_official — post 14074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
+
+## persian_trend_official — post 14073
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14073" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 5.1 مگابایت
+
+اتاق جنگ چهارشنبه ۲۳ اردیبهشت | جمهوری اسلامی ناو آمریکایی را تهدید به حمله کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14072
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14072_1778703800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چت جی پی تی وارد پرونده قتل شد!
+
+💢رسانه‌های کره جنوبی گزارش دادن زنی متهم شده قبل از مسموم کردن چند نفر، از ChatGPT درباره ترکیب الکل و قرص خواب‌آور سؤال کرده
+
+💢طبق گزارش‌ها، این زن پرسیده بوده:
+اگه الکل و داروی خواب‌آور باهم مصرف بشن چی میشه؟
+چه دوزی خطرناکه؟
+و آیا ممکنه باعث مرگ بشه؟
+پلیس میگه بعد از همین جستجوها، به سه مرد نوشیدنی آلوده داده شده که دو نفرشون جونشونو از دست دادن 💀
+
+💢حالا نکته عجیب‌تر:
+دادگاه از گفتگوهای ChatGPT به‌عنوان مدرک برای اثبات «نیت قتل» استفاده کرده!
+
+💢وکیل پرونده گفته این شاید یکی از اولین پرونده‌هاییه که چت‌های AI به‌عنوان شاهد مستقیم تو پرونده قتل پذیرفته میشن..
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوشی ۱۱۰۰ دلاری تو ایران ۳۰۰۰ دلار فروخته میشه! آدم باورش نمیشه نیم میلیارد تومن پول یه گوشی 》Hadi《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انجام ۲۰۲ پرواز در فرودگاه امام طی یک هفته آرتیمانی معاون بهره‌برداری فرودگاهی شهر فرودگاهی امام: در بازه زمانی ۵ تا ۱۱ تعداد ۲۰۲ پرواز شامل ۱۰۰پرواز خروجی و ۱۰۲ پرواز ورودی انجام داده‌ایم. هفته گذشته فرودگاه میزبان ۲۱ هزار و ۵۴۹ مسافر بود که از این تعداد،…
+</div>
+
+## OfficialPersiaTwiter — post 498386
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498386_1778703801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💻خب توی این مدت GPT Image 2 نسل جدید تصویر سازی Open Ai ارائه شد . 👌🏽👌🏽👌🏽
+
+در ادامه کامل و دقیق به بررسی این جهش و آپدیت فوق العاده می‌پردازیم.
+
+برای کاهش حجم دانلود کیفیت ویدئو رو نصف کردم که راحت تر بتونید مشاهده کنید .
+
+https://t.me/NewElizaium
+@ElizaiumHelp
+</div>
+
+## OfficialPersiaTwiter — post 498385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه کانفیگ دارم خدا خیرش بده انقدر سرعتش پایینه اصلا نمیذاره حجمش تموم‌ شه
+
+》iman《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۵ ثانیه قبل از تحویل دادن ۲۸۰ هزار تومنم به کانفیگ فروش.
+
+》سَجّی《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری رژیم صهیونیستی: در میانهٔ جنگ اخیر، بنیامین نتانیاهو سفری مخفیانه به امارات متحدهٔ عربی داشته و با شیخ محمد بن زاید، رئیس‌جمهور امارات، دیدار کرده است 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شما با نظر ترامپ موافقید که وضعیت مالی مردم آمریکا نباید توی تصمیم‌گیری درباره ایران تأثیر داشته باشه؟ جی‌دی ونس: نه، فکر نمی‌کنم رئیس‌جمهور همچین چیزی گفته باشه،برداشت اشتباهی از حرفشه - ولی در کل، من با رئیس‌جمهور موافقم که ایران نباید سلاح هسته‌ای…
+</div>
+
+## OfficialPersiaTwiter — post 498380
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498380_1778703803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئویی پربازخورد در فضای مجازی از تشبیه فروشندگان vpn به خوک
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498379
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498379_1778703804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی‌ترین شوخی پسرا:
+
+》ꜱᴀʟᴠᴀᴅᴏʀ《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شی هنوز ترامپ را ندیده است / خبرنگار فاکس‌نیوز در پکن:
+
+"ترامپ هنوز پرزیدنت شی را ندیده است، این اتفاق قرار است چند ساعت دیگر طی مراسم استقبال رسمی دولتی از پرزیدنت ترامپ در تالار بزرگ خلق رخ دهد.
+
+ما انتظار داریم که این مراسم اساساً شبیه نسخه چینی از کاری باشد که ایالات متحده چند هفته پیش در چمن جنوبی کاخ سفید برای پادشاه چارلز انجام داد."
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498377
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدا نسبت به مردم ایران این‌جوریه که نبینم یه جا نشستید، منتظر چی هستید؟ 》مسعودانته《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا باشگاه مردونه جای جالبیه، واستاده بودم یهو تایتانیک پلی کردن ۲ تا خرس گریزلی ۱۹۰ سانتی شروع کردن باهم تانگو رقصیدن.
+
+》بِل مونت《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آغاز مجدد حملات هوایی ارتش رژیم اسرائیل در لبنان؛ همزمان منابع محلی از شنیده شدن صدای چندین انفجار خبر می‌دهند. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498374
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498374_1778703805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس معاون ترامپ: وقتی ترامپ سفره و من اینجام، حس اون بچه‌ی فیلم Home Alone رو دارم! - میام کاخ سفید، همه‌جا ساکته و خالیه، بعد یهو یادم میاد چه خبره 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای نیویورک تایمز: شرکت‌‌های چینی به دنبال فروش سلاح به ایران هستند و قصد دارند آنها را از طریق کشورهای دیگر ارسال کنند تا منبع خود را پنهان کنند
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچوقت کانسپت موزیک پیشوازو نمیفهمم یکی ۱۲ تومن کشیده بالا فراریه از صبح صد بار بهش زنگ میزنیم محسن ابراهیم زاده میخونه دونه دونه دونه دونه این حسی که الان بینمونه
+
+》SOL《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 280958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊روناک فرجی، روزنامه‌نگار
+
+جشنواره فیلم جشنواره فیلم کن امسال در حالی کار خود را در ساحل «کروآزت» آغاز کرده که برخلاف برخی دوره‌های اخیر، تمرکز اصلی آن دوباره به سینمای مؤلف و فیلم‌سازان شناخته‌شده اروپایی و آسیایی بازگشته است.
+
+هفتاد و نهمین دوره جشنواره بین‌المللی فیلم کن با حضور ستارگان سینما، فیلمسازان و اعضای هیئت داوران در جنوب فرانسه آغاز شد و فرش قرمز این رویداد میزبان چهره‌های سرشناس صنعت سینما بود.
+
+جشنواره این دوره شمار بی‌سابقه‌ای از شرکت‌کنندگان را جذب کرده است؛ افرادی که برای خرید آثار اغلب مستقل و کم‌هزینه رقابت می‌کنند، در حالی که استودیوهای بزرگ محتاط‌‌تر شده‌اند و کمتر ریسک می‌کنند.
+
+حدود ۱۶ هزار نفر از فعالان صنعت سینما برای حضور در بزرگ‌ترین بازار فیلم جهان ثبت‌نام کرده‌اند که از ۱۲ تا ۲۰ مه همزمان با جشنواره فیلم کن برگزار می‌شود.
+
+در مراسم افتتاحیه جشنواره، نخل طلای افتخاری برای یک عمر فعالیت هنری به پیتر جکسون، کارگردان فیلم‌های «ارباب حلقه‌ها» و «کینگ کونگ»، اهدا شد.
+
+برای خواندن ادامه مطلب به لینک زیر مراجعه کنید:
+
+https://bbc.in/4dhST0w
+📷Getty Images
+@BBCPersian
+</div>
+
+## bbcpersian — post 280957
+
+<div align="center">
+  <a href="telegram/content/bbcpersian_280957_1778703806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز چهارشنبه۲۳ اردیبهشت ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## bbcpersian — post 280956
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_280956_1778703808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری میزان، وابسته قوه قضائیه می‌گوید محمد عباسی از بازداشت شدگان اعتراضات دی ماه امروز(چهارشنبه ۲۳ اردیبهشت) اعدام شده است.
+
+قوه قضائیه جمهوری اسلامی او را به «کشتن» یک نظامی در جریان اعتراضات زمستان پارسال متهم کرد و می‌گوید خانواده فرد نظامی او را «قصاص کرده‌اند.»
+
+قوه قضائیه همچنین گفته است اجرای حکم اعدام با تایید و ابرام دیوان عالی ایران و به تقاضای اولیا انجام شده است.
+
+دیوان عالی ایران همچنین حکم ۲۵ سال حبس فاطمه عباسی، دختر آقای عباسی که در بند زنان زندان اوین زندانیست را تایید کرده است.
+
+این دومین مورد اعدامی است که قوه قضائیه امروز گزارش کرده است؛ احسان افرشته هم صبح امروز به اتهام «جاسوسی و همکاری اطلاعاتی به نفع اسرائیل» اعدام شد.
+
+با احتساب محمد عباسی، تاکنون ۳۲ زندانی پس از آغاز جنگ آمریکا و اسرائیل با ایران در این کشور اعدام شده‌اند.
+
+غلامحسین محسنی اژه‌ای، رئیس قوه قضائیه، بارها از دادستان‌ها خواسته است بدون اغماض و به‌ سرعت به پرونده کسانی که بعد از شروع جنگ و یا در اعتراضات دی ماه بازداشت شده‌اند رسیدگی کنند و احکامشان صادر و اجرا شود.
+
+📷Mizan
+@bbcpersian
+</div>
+
+## bbcpersian — post 280955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام: از آغاز محاصره بنادر ایران به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور دادیم
+
+فرماندهی مرکزی ارتش آمریکا، سنتکام، در منطقه در اطلاعیه‌ای گفته است از زمان آغاز محاصره بنادر ایران به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده است.
+
+این نهاد در اطلاعیه‌ای اعلام کرده است: «چهار هفته پیش، سنتکام اجرای محاصره کشتی‌هایی را که به بنادر ایران وارد و از آنها خارج می‌شدند، آغاز کرد. تا امروز، نیروهای آمریکایی ۶۷ کشتی تجاری را مجبور به تغییر مسیر کردند، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور دادند و ۴ کشتی را برای اطمینان از رعایت محاصره، غیرفعال کردند.»
+
+در ادامه این اطلاعیه آمده است: «اوایل این هفته، نیروهای سنتکام پس از برقراری ارتباط رادیویی و شلیک گلوله‌های هشدار دهنده با سلاح‌های سبک، از بازگشت دو کشتی تجاری برای رعایت محاصره مطمئن شدند و به وضوح نشان دادند که اجرای قوانین ایالات متحده همچنان به طور کامل ادامه دارد.»
+
+@bbcpersian
+</div>
+
+## bbcpersian — post 280954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل: انبارهای تسلیحاتی و پرتابگرهای آماده شلیک حزب‌الله را هدف قرار دادیم
+
+ارتش اسرائیل در بیانیه‌ای گفته است «انبارهای تسلیحاتی، پرتابگرهای بارگذاری‌شده و آماده شلیک» و سایر زیرساخت‌های حزب‌الله لبنان را در چندین منطقه در جنوب لبنان هدف قرار داده است.
+
+این بیانیه می‌گوید: «در محل‌های شلیک که هدف قرار گرفتند، پرتابگرهای راکتی که به سمت منطقه فعالیت نیروهای ارتش اسرائیل و به سمت خاک اسرائیل هدف‌گیری شده بودند، منهدم شدند.»
+
+پیشتر وزارت بهداشت لبنان اعلام کرده بود که در حملات امروز اسرائیل ۱۲ نفر کشته شده‌اند، که اغلب آنها در جنوب بیروت بوده‌اند.
+
+این حملات با وجود آتش‌بس میان اسراییل و حزب‌الله انجام شده است.
+
+حملات جدید که مناطق مختلف جنوب لبنان را هدف قرار داد، در آستانه دور تازه‌ای از مذاکرات مستقیم میان لبنان و اسرائیل در واشنگتن با میانجیگری ایالات متحده انجام شد.
+
+حزب‌الله به‌شدت با این مذاکرات مخالف است.
+
+@bbcpersian
+</div>
+
+## Lichargoo — post 24870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لاشیا حالا که من ۶ ماهه دارم مثل گاو غذا می‌خورم باید بگید منظورتون از "پسر بالای ۱۹۰" قدش بوده نه وزنش؟
+</div>
+
+## Pesari_Ke_Konie — post 44929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور نامحدود یک ماهه فقط ۹۹۰ تومن :))) مخصوص تلگرام فقط
+
+هرکی خواست تو چنل زیر نوشته توضیحاتشو :
+@nexvpn_vip
+</div>
+
+## Pesari_Ke_Konie — post 44928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام خواستم یه تشکری کنم ازت
+
+خیلی سال پیش تقریبا سال 2018 اینا بود تو چنلت زده بودی راننده نیسانی که راهنما بزنه کونیه اقا منم از ترس اینکه کونی نباشم راهنما نمیزدم
+
+یه روز بدون راهنما پیچیدم چپ یه دختری دستشو گذاشت رو بوق اقا زد بهم پیاده شدیم و این داستانا اقا کم کم از این دختره خوشم اومد شمارشو گرفتم کارت ماشینمو گذاشتم پیشش که ماشینشو اوکی کنم، ماشینش که اوکی شد ولی نتونستم بهش فکر نکنم بهش زنگ میزدم باهاش حرف میزدم طرفم اوکی بود خوشش میومد ازم هیچی دیگه الان بعد چند سال باهاش ازدواج کردم😂
+</div>
+
+## Tans_Footbali — post 236275
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236275_1778703809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز لبنان🇱🇧 شکایتی رسمی از ایران به سازمان ملل ارائه کرده و ایران رو به 3مورد زیر متهم کرده:
+
+1-نقض کنوانسیون وین:
+عدم هماهنگی سفارت ایران با مقامات لبنانی برای جابه‌جایی دیپلمات‌ها قبل از حمله اسرائیل (8 مارس)، ثبت نکردن برخی افراد کشته‌شده به عنوان دیپلمات رسمی، و استفاده از اماکن دیپلماتیک برای فعالیت‌های ناسازگار با وظایف دیپلماتیک.
+2-دخالت مستقیم و آشکار ایران تو لبنان:
+دخالت مستقیم سپاه و سفارت ایران در امور داخلی لبنان و نادیده گرفتن تصمیمات دولت لبنان.
+3-کشوندن لبنان به جنگ:
+درگیرکردنِ لبنان تو جنگ ویرانگر بدون اراده دولت لبنان، که منجر به هزاران کشته، بیش از یک میلیون آواره، ویرانی زیاد و اشغال بخش‌هایی توسط اسرائیل شده.
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236274
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236274_1778703809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی تاج: شنیده ایم معین برای تیم ملی تو جام جهانی قراره موزیک بخونه، ما دخالتی در این موزیک نداشتیم ولی اگه بخونه ازش حمایت می‌کنیم
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽ رئال مادرید - رئال اویدو
+
+🏆 لالیگا اسپانیا 
+🇪🇸
+
+🕔 پنج‌شنبه ساعت ۲۳:۰۰
+🏟 ورزشگاه برنابئو
+
+🎲 با بیش از ۵۵۰ نوع آپشن پیش‌بینی
+
+👆 ضرایب شگفت‌انگیز
+
+
+📊 نگاهی به آمار دو تیم:
+
+✅ رئال مادرید در ۵ دیدار اخیر خود در لالیگا دو برد و دو تساوی کسب کرده و یک بازی را واگذار کرده است.
+
+✅ رئال اویدو در ۵ دیدار اخیر خود در لالیگا تنها یک مرتبه موفق به برد شده و دو تساوی کسب کرده و دو بازی را واگذار کرده است.
+
+📈 میانگین گل در ۱۰ دیدار اخیر رئال مادرید در لالیگا ۲.۸ گل در هر بازی بوده است.
+
+📈 میانگین گل در ۱۰ دیدار اخیر رئال اویدو در لالیگا ۲.۴ گل در هر بازی بوده است.
+
+
+🧠 نه گفتن بخش مهمی از استراتژی است.
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+
+💻 @BetForward
+</div>
+
+## Tans_Footbali — post 236272
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236272_1778703810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبح امروز احسان افراشته به اتهام جاسوسی برای موساد توسط جمهوری شیطانی اسلامی به دار آویخته شد. @Tans_Footbali
+</div>
+
+## hamclasixii — post 75358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏cigarettes after تموم شدن کانفیگ
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنتم زیر پست ترامپ
+
+https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
+بترکونینننن 💥🙌🏾حملههههه
+</div>
+
+## withyashar — post 11167
+
+<div align="center">
+  <a href="telegram/content/withyashar_11167_1778703811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه استقبال از دونالد ترامپ در پکن، چین
+@withyashar
+</div>
+
+## withyashar — post 11166
+
+
+
+
+## withyashar — post 11165
+
+
+
+
+## withyashar — post 11164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک @withyashar
+</div>
+
+## withyashar — post 11163
+
+<div align="center">
+  <a href="telegram/content/withyashar_11163_1778703812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا
+تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 21:59
 ---
 
