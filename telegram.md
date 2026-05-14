@@ -7,6 +7,673 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 13:18
+---
+
+## persian_trend_official — post 14112
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14112_1778752117.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی: این آمریکا است که تنگه هرمز را بسته، نه ایران
+
+💢عباس عراقچی، وزیر خارجه جمهوری اسلامی ، اعلام کرد تهران تنگه هرمز را نبسته و این آمریکا است که با اقدامات خود محاصره ایجاد کرده است.
+
+💢او گفت:
+
+▪️ از نگاه جمهوری اسلامی ، تنگه هرمز برای تمامی کشتی‌های تجاری باز است
+
+▪️ کشتی‌ها باید با نیروهای دریایی حمهوری اسلامی همکاری و هماهنگی داشته باشند
+
+▪️ جمهوری اسلامی هیچ مانعی در مسیر عبور کشتی‌ها ایجاد نکرده است
+
+▪️ آنچه اکنون در منطقه رخ می‌دهد، ناشی از محاصره و اقدامات آمریکا است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14111
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14111_1778752119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی از انفجار شناور کلاس سلیمانی نیرو دریایی سپاه در جنگ اخیر
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14110
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14110_1778752120.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️🏦 یک مقام کاخ سفید:
+
+✅ رئیس جمهور ترامپ و همتای چینی او بر سر لزوم باز نگه داشتن تنگه هرمز توافق کردند.
+✅ ترامپ و همتای چینی‌اش توافق کردند که ایران نمی‌تواند سلاح هسته‌ای داشته باشد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14109
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14109_1778752121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سوپراپلیکیشن ایتا اعلام کرد امکان ارسال فایل تا حجم ۲۰ مگابایت مجدداً برای همه کاربران فراهم شده است!
+
+کاش تلگرام بیاد از شما یاد بگیره 🤯
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14108
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14108_1778752121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢زلزله ای در کرمان رخ داده است 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14107
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢زلزله ای در کرمان رخ داده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14106
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14106_1778752121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 روسیه یکی از سنگین‌ترین حملات خود را علیه اوکراین انجام داد
+
+💢گزارش‌ها حاکی است روسیه طی ۲۴ ساعت گذشته یکی از بزرگ‌ترین حملات هوایی خود از آغاز جنگ را علیه اوکراین انجام داده است.
+
+💢بر اساس اطلاعات منتشرشده:
+
+▪️ بیش از ۱۴۰۰ پهپاد در این حمله استفاده شده است
+▪️ همچنین بیش از ۵۰ موشک به‌سمت اهداف مختلف شلیک شده‌اند
+▪️ موج نخست حملات مناطق غربی اوکراین را هدف قرار داد
+▪️ سپس حملات به سمت کی‌یف گسترش یافت
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14105
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14105_1778752122.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اتوبوس تیم ملی فوتبال رو با شعار مرگ بر آمریکا بدرقه کردن تا بره آمریکا...
+
+پ.ن: چی بگم والا...
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14104
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14104_1778752123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌ها از توقیف یک شناور در نزدیکی فجیره توسط ایران
+
+💢برخی گزارش‌ها حاکی است یک فروند شناور در فاصله حدود ۳۸ مایل دریایی از بندر فجیره امارات توسط نیروهای ایرانی توقیف شده و در حال حرکت به‌سمت آب‌های سرزمینی ایران است.
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزیر آموزش‌ و پرورش:
+
+امتحانات نهایی ۲ هفته بعد از عادی شدن شرایط و پایان جنگ برگزار خواهند شد. ضمن اینکه در استان‌ها تصمیم‌گیری دربارۀ نحوۀ برگزاری امتحانات برعهدۀ استانداران خواهد بود.
+
+پ.ن: دانش آموزان عزیز دعا کنید ماجرا مثل صدام عراق نشه که امتحانات‌تون یه 11 سالی‌ طول خواهد کشید. 🗿😂
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14101
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14101_1778752124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صداوسیما از احسان افرشته و روایت عجیب از جاسوسی !
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺️ بلومبرگ: ۴ روز است که از خارک بارگیری نفت نمی‌شود و اسکله‌های نفتی کاملاً خالی است
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نصرالله معین، خواننده لس‌آنجلسی خبر منتشر شده از سمت مهدی تاج رییس فدراسیون فوتبال ایران مبنی بر اجرای آهنگی برای تیم ملی جمهوری اسلامی ایران را تکذیب کرد. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498443
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498443_1778752125.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بعد از ۵۰ سال اولین رئیس‌ جمهور آمریکاست که به معبد آسمان چین رفت.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دستگاهی جدیدا طراحی شده که به پارتنرها کمک می کنه که هنگام تماس تصویری از راه دور برای هم بوس بفرستن
+این دستگاه حرکت و فشار لب هارو ثبت میکنه و همون لحظه برای طرف مقابل بازسازی میکنه.
+
+هنگامی که یک کاربر لب های خود را به دستگاه فشار می دهد ، سنسورها حرکت و فشار دقیق بوسه را ثبت می کنند و بلافاصله آن داده ها را به شریک زندگی خود ارسال می کنند.
+
+در داخل، 13 سیستم کوچک "عصب" کابل کش زیر یک سطح نرم می کشند و آزاد می شوند، و حرکات دقیق لب های شخص دیگر را در زمان واقعی بازسازی می کنند. توسعه دهندگان می گویند نتیجه، لحظه ای شگفت انگیز و واقعی از ارتباط است، تبدیل یک تماس ویدیویی ساده به چیزی که تقریبا احساس می کند با هم بودن است.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوانندگان فینا جام جهانی آمریکا مشخص شدند
+
+گروه BTS، شکیرا و مدونا در فینال جام جهانی اجرا خواهند داشت.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فرانسه: چین قول می‌دهد درها را به روی شرکت‌ها بازتر کند شی جین پینگ، رئیس جمهور چین، در دیدار با رهبران تجاری آمریکا، با تأکید بر تمایل پکن برای تقویت همکاری اقتصادی و تجاری با ایالات متحده، تأیید کرد که درهای چین «حتی گسترده‌تر» به روی جهان باز…
+</div>
+
+## OfficialPersiaTwiter — post 498436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای کاخ سفید: 🔹رئیس جمهور ترامپ و همتای چینی او بر سر لزوم باز نگه داشتن تنگه هرمز توافق کردند. 🔹ترامپ و همتای چینی‌اش توافق کردند که ایران نمی‌تواند سلاح هسته‌ای داشته باشد. 🔹دیدار ترامپ با همتای چینی‌اش خوب بود و آنها در مورد راه‌های ارتقای همکاری‌های…
+</div>
+
+## OfficialPersiaTwiter — post 498435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش جالب روبیو، وزیر خارجه ترامپ، از دیدنِ سالنِ دیدارهای ریاست‌جمهوری چین 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توافق چین و آمریکا بر سر تنگه هرمز 🔹طبق گزارش رویترز، ایالات متحده و چین توافق کردند که هیچ کشوری نباید اجازه داشته باشد عوارض حمل و نقل در تنگه هرمز را دریافت کند. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498433
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498433_1778752127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انضباط یک افسر نظامی چینی در فرودگاه پکن درحالی که هواپیمای غول‌پیکر ریاست جمهوری ایالات متحده آمریکا در پشت سر او در حال حرکت است و این افسر بدون هیچ حرکتی در جای خود ایستاده است مورد توجه بسیاری از رسانه‌ها قرار گرفته است
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استارلینک با مجوز جدید FCC یک قدم به ارائه اینترنت ماهواره‌ای بر روی موبایل نزدیک‌تر شد
+
+🔹 اسپیس‌ ایکس موفق شد یکی از مهم‌ترین مجوزهای قانونی را برای اجرایی‌کردن پروژه اتصال مستقیم ماهواره به موبایل دریافت کند. کمیسیون ارتباطات فدرال (FCC) با واگذاری حدود ۶۵ مگاهرتز از طیف فرکانسی شرکت EchoStar به استارلینک موافقت کرد. این مجوز به معنای دستیابی اسپیس‌ایکس به یک پهنای باند اختصاصی و پیوسته است که به کاربران اجازه می‌دهد بدون نیاز به تجهیزات اضافی مانند دیش، مستقیماً از طریق گوشی‌های معمولی به اینترنت ماهواره‌ای مشابه 5G متصل شوند.
+🔹 این توافق که ارزش آن حدود ۱۷ میلیارد دلار تخمین زده می‌شود، شامل سه باند فرکانسی مجزای AWS-3 ،AWS-4 و H-Block است که مجموعاً یک طیف باند میانی ایده‌آل برای شبکه 5G را تشکیل می‌دهند. اهمیت این طیف اختصاصی در این است که برخلاف شبکه‌های اشتراکی یا تکه‌تکه شده، ظرفیت و پایداری لازم برای یک شبکه سلولی واقعی را فراهم می‌کند و می‌تواند ظرفیت سیستم‌های نسل قبل اسپیس‌ایکس را تا بیش از ۱۰۰ برابر افزایش دهد. هدف نهایی این پروژه، ارائه اینترنتی مشابه با استانداردهای LTE زمینی از اعماق فضا به هر گوشی در سراسر ایالات‌متحده است.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498431
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498431_1778752128.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از فیلم‌برداری جالب ایلان ماسک در چین
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رتبه‌های برتر اوپک اعلام شد/ عربستان و ایران در صدر جدول تولیدکنندگان نفت
+
+سازمان کشورهای صادرکننده نفت (اوپک) اعلام کرد:
+🔹عربستان با تولید روزانه ۶ میلیون و ۷۶۸ هزار بشکه و ایران با تولید روزانه ۲ میلیون و ۸۵۴ هزار بشکه، به‌ترتیب جایگاه‌های اولین و دومین تولیدکننده در میان اعضای سازمان کشورهای صادرکننده نفت را به خود اختصاص دادند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498428
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498428_1778752129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر تکان‌دهنده از طوفان در ایالت اوتار پرادش هند
+
+این طوفان وحشتناک در هند ۹۰ کشته بر جای گذاشت
+
+در تصاویر منتشر شده از شهر بریلی هند، مرد جوانی که توسط باد بلند شد و به هوا رفت دیده میشود
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش زمین‌لرزه‌ای ۵ ریشتری در عمق ۸ کیلومتری شهرستان بردسیر کرمان را لرزاند
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498426
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498426_1778752129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه‌ی دست دادن ترامپ و شی جین پینگ که ترامپ برای دست دادن جلو رفت و شی جین پینگ از جای خود حرکتی نکرد هم خیلی مورد توجه رسانه ها قرار گرفته است
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مرکز تجارت دریایی بریتانیا: یک کشتی در نزدیکی امارات تصرف شده و به سمت ایران در حرکت است
+
+یک کشتی در نزدیکی سواحل امارات متحده عربی و حوالی تنگه هرمز «به تصرف افراد ناشناس درآمده و اکنون در حال حرکت به سمت آب‌های سرزمینی ایران است.»
+
+مرکز تجارت دریایی بریتانیا روز پنج‌شنبه با اعلام این خبر گفت که این کشتی در فاصله حدود ۷۰ کیلومتری شمال‌شرقی فجیره به «تصرف افراد ناشناس درآمده است.»
+
+تنگه هرمز، به عنوان حیاتی‌ترین گذرگاه انرژی جهان، یک محور مهم اختلافات ایران و آمریکاست.
+
+پس از جنگ آمریکا و اسرائیل علیه ایران، تهرن این تنگه را مسدود کرد و آمریکا هم از ۱۳ آوریل (۲۴ فروردین) یک محاصره دریایی را بر تمام بنادر و سواحل جنوبی ایران اجرا کرده است، به‌طوری که هیچ کشتی اجازه حرکت از مبدا و به مقصد بنادر ایرانی را ندارد.
+
+حدود ۲۰ درصد از نفت و گاز طبیعی مایع جهان از این آبراه حیاتی منتقل می‌شود که مسدود شدن آن باعث افزایش شدید قیمت‌ها در سطح جهان شده است.
+https://bbc.in/4fkRCIA
+@BBCPersian
+</div>
+
+## bbcpersian — post 281018
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281018_1778752130.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه ایران برای شرکت در نشست وزیران امور خارجه بریکس به هند سفر کرده است. جنگ ایران و بحران سوخت مرتبط با آن، بر گفت‌وگوهای این نشست دو روزه سایه انداخته است.
+
+هند میزبان این نشست نسبت به «نوسان قابل توجه» در وضعیت بین‌المللی هشدار داد و گفت درگیری‌ها باعث بی‌ثباتی اقتصادی و ناامنی انرژی شده‌اند.
+
+سوبرامانیام جایشانکار، وزیر امور خارجه هند، در سخنرانی افتتاحیه خود گفت: «ما در زمانی با نوسان قابل توجه در روابط بین‌الملل گرد هم آمده‌ایم.»
+
+آقای جایشانکار افزود: «درگیری‌های جاری، نااطمینانی‌های اقتصادی و چالش‌ها در تجارت، فناوری و اقلیم، در حال شکل دادن به چشم‌انداز جهانی هستند.»
+
+او گفت: «انتظار فزاینده‌ای، به‌ویژه از سوی اقتصادهای نوظهور و کشورهای در حال توسعه، وجود دارد که بریکس نقش سازنده و تثبیت‌کننده‌ای ایفا کند.»
+
+بریکس نام گروهی به رهبری برخی از کشورهایی است که اقتصادی نوظهور در جهان دارند. برزیل، روسیه، هند، چین و آفریقای جنوبی اعضای اصلی بریکس هستند. نام بریکس از حروف اول نام کشورهای عضو به زبان انگلیسی گرفته شده است.
+
+
+📷EPA/Shutterstock
+https://bbc.in/4fkRCIA
+@BBCPersian
+</div>
+
+## bbcpersian — post 281009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دختر کیم جونگ‌اون بیشتر از همیشه با لباس‌هایی از برندهای لوکس طراحان غربی در عکس‌ها ظاهر می‌شود، برندهایی که در کره شمالی به دلیل «ضدسوسیالیستی» بودن ممنوع‌اند.
+
+اما لباس‌های کیم جو ئه، از لباس‌های چرمی و مدل موی «خروسی» گرفته تا حتی پیراهن با آستین توری، بیش از آنکه نشانه سرکشی نوجوانانه باشد، نشان می‌دهد او برای جانشینی مقام رهبر عالی کره شمالی آماده می‌شود.
+
+او برای نخستین بار در ۹ سالگی، در نوامبر ۲۰۲۲، در حالی که کنار پدرش در برابر یک موشک بالستیک قاره‌پیمای عظیم قدم می‌زد، به شکل رسمی دیده شد. اما همان زمان هم با موهای بسته از پشت، شلوار مشکی و کاپشن سفید پفی، ظاهری حساب‌شده داشت.
+
+از آن زمان، مدل موی او هرچه بیشتر آراسته و شیک شده و پوشش او نیز به‌تدریج ظریف‌تر، مجلل‌تر و پخته‌تر جلوه می‌کند.
+
+اکنون گزارش‌ها حاکی است که برخی می‌خواهند از سبک شیک و آراسته جو آئه الگوبرداری کنند.
+
+مطلب را از لینک ⬇️ در سایت بی‌بی‌سی فارسی بخوانید.
+https://bbc.in/3Pfgjf9
+
+📸GettyImages/ News1/ Reuters/ EPA/Shutterstock/ LightRocket via Getty Images/ AFP via Getty Images
+
+@BBCPersian
+</div>
+
+## Lichargoo — post 24873
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بگایی واقعی فقط اونجا که بعد از یک عمر لر بودن،امروز رفتم و سویا خریدم.
+</div>
+
+## thefeedconfig — post 76
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 آموزش کار با برنامه دفید (Thefeed):
+برای دریافت آخرین نسخه و کانفیگ‌ها، به کانال زیر بروید و برنامه را نصب‌ کنید و لینک کانفیگ را کپی کنید:
+@thefeedconfig
+
+ورود به برنامه:
+۱. برنامه را باز کنید و زبان را انتخاب نمایید.
+۲. در قسمت مشخص شده (thefeed://...)، کانفیگ کپی شده را وارد کرده و دکمه «وارد کردن» را بزنید تا ثبت شود.
+
+عملکرد برنامه:
+پس از وارد کردن اولین کانفیگ، برنامه ریزالورهای موجود در کانفیگ را بررسی کرده (چند دقیقه طول میکشد) و سپس لیست کانال‌ها را دریافت می‌کند. شما می‌توانید کانال‌ها را باز کرده، پست‌ها را مشاهده و عکس، ویدیو، ویس و فایل‌ها را دانلود کنید.
+
+نکته: لیست کانال‌ها فقط توسط سازنده کانفیگ قابل تغییر است. (جلو تر یک‌روش دیگر برای کانال های دلخواه شما نیز نوشته ام)
+
+افزودن کانفیگ جدید:
+در صفحه اصلی با زدن دکمه + می‌توانید کانفیگ جدید وارد کنید یا کانفیگ‌های موجود دیگر را فعال نمایید.
+
+🛠️ بخش ریزالور ها:
+در این بخش می‌توانید ریزالورها را مدیریت کنید. دکمه‌ای به نام «بانک ریزالور» وجود دارد که لیست کامل را نمایش می‌دهد. همچنین یک لیست فعال به نام Default وجود دارد که پس از بررسی اولیه، ریزالورهای فعال را در خود نگه می‌دارد. شما می‌توانید برای اینترنت‌های مختلف، لیست‌های فعال متفاوتی داشته باشید. و با زدن دکمه «بررسی مجدد»، می‌توانید از بانک ریزالور فعال برای اینترنت خود را پیدا کرده و به لیست جدید اضافه کنید.
+
+🔍 بخش پیدا کردن ریزالور:
+این بخش بسیار مهم است. با استفاده از یک لیست پیش‌فرض ۵۰ هزارتایی، می‌توانید ریزالورهایی که برای اینترنت شما کار می‌کنند را پیدا کنید (زمانی که سرعت برنامه کم شده بود و یا کار‌ نمی‌کرد).
+روش کار:
+۱. وارد بخش شوید.
+۲. دکمه بارگذاری لیست پیش‌فرض را بزنید.
+۳. دکمه شروع اسکن را بزنید.
+۴. برنامه شروع به پیدا کردن می‌کند. وقتی حدود ۱۰ تا ریزالور پیدا شد، توقف را بزنید و سپس دکمه «افزودن به لیست فعال» را بزنید.
+*توجه:* حتماً باید VPN خاموش باشد.
+
+📺 بخش کانال‌های دلخواه (teleMirror):
+این بخش کاملاً از قسمت‌های قبلی جداست و مکانیزم متفاوتی دارد. این بخش از طریق سرویس‌های گوگل، پیام و عکس کانال‌های عمومی تلگرام را می‌آورد و نمایش می‌دهد.
+*محدودیت‌ها:* این بخش نمی‌تواند ویدیو پخش کند یا فایل دانلود کند (به خاطر محدودیت‌های گوگل). همچنین برخی کانال‌های عمومی اجازه اشتراک‌گذاری در سایت را نمی‌دهند، و پست هایشان در این قسمت نمایش داده نمی‌شود.
+نکته مهم: این بخش فقط زمانی کار می‌کند که گوگل در دسترس باشد. اگر گوگل مسدود شود، فقط قسمت اصلی برنامه (معرفی شده در اول پست) کار خواهد کرد. همچنین سرویس‌های گوگل محدودیت تعداد درخواست دارند که ممکن است شما را محدود کنند.
+
+🔔 برای اخبار پروژه حتما کانال اصلی را دنبال کنید:
+@networkti
+</div>
+
+## networkti — post 332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال متین سنپای داره آموزش یک روش جدید وصل شدن رایگان با سرعت بالا رو آماده میکنه:
+
+https://t.me/MatinSenPaii
+
+کانال متین رو میتونید از توی کانفیگ‌ مخصوص فیلترشکن TheFeed هم چک کنید تا وقتی آموزش رو گذاشت استفاده کنید.
+</div>
+
+## Pesari_Ke_Konie — post 44932
+
+<div align="center">
+  <a href="telegram/content/Pesari_Ke_Konie_44932_1778752131.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتوبوس تیم ملی فوتبال رو با شعار مرگ بر آمریکا بدرقه کردن تا بره آمریکا.
+
+
+@Pesari_Ke_Konie
+</div>
+
+## hamclasixii — post 75363
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75363_1778752132.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدر بزرگ من که ۷۰ سالشه و مدت ها قبل کارگر ساختمانی بوده و اصلا اینترنت نمیدونه چیه و حتی نت ملی هم نداره پیامک اومده واسه اینترنت پرو دسترسی شما تائید شد
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : جابجای‌های غول آسا دو شماره یک «AirForce1» هواپیمای ویژه ریاست جمهوری و «B1 »بمب افکن اسطورهی آمریکا و خبر ویژه از داخل ایران https://www.instagram.com/reel/DYQCr39RJ4i/?igsh=MThycjJiYWZmbnJ3dA== کارای اداریش رو انجام بدید تا بعدش بریم…
+</div>
+
+## withyashar — post 11194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس به نقل از مقامات اسرائیلی:
+
+در پی احتمال تصمیم ترامپ برای از سرگیری جنگ، در اسرائیل حالت آماده‌باش حداکثری در طول تعطیلات آخر هفته برقرار خواهد شد.
+@withyashar
+</div>
+
+## withyashar — post 11193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به فاکس‌نیوز:
+
+رئیس‌جمهور چین علاقه‌مند است نفت بیشتری از آمریکا خریداری کند تا وابستگی کشورش به تنگه هرمز را کاهش دهد.
+@withyashar
+</div>
+
+## withyashar — post 11192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جان بولتون: مذاکره با ایران برای یک توافق هسته‌ای هدر دادن اکسیژن است.
+
+این افراد دهه‌ها پیش تصمیم استراتژیکی برای دستیابی به سلاح‌های هسته‌ای گرفتند و در این ۴۷ سال هیچ مدرکی وجود ندارد که نشان دهد آن‌ها این هدف را رها کرده‌اند.
+@withyashar
+</div>
+
+## withyashar — post 11191
+
+<div align="center">
+  <a href="telegram/content/withyashar_11191_1778752133.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بعد از ۵۰ سال، اولین رئیس‌ جمهوری شد که به معبد آسمان چین رفت
+@withyashar
+</div>
+
+## withyashar — post 11190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید : ترامپ و شی توافق کردن که تنگه هرمز باید باز بمونه
+@withyashar
+</div>
+
+## withyashar — post 11189
+
+<div align="center">
+  <a href="telegram/content/withyashar_11189_1778752134.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز با حیرت : داداش بزرگه نگات میکنه ، لبخند بزنید شما با دوربین ها رصد میشوید
+خبرنگار فاکس‌نیوز گزارش داد که خودروی آن‌ها در چین تنها دو دقیقه در محدوده «توقف ممنوع» پکن ایستاد و بلافاصله پیامک جریمه ۴۰ دلاری برای راننده صادر شد. به گفته او، در این کشور دوربین‌های نظارتی همه‌جا فعال هستند و تخلفات رانندگی در لحظه ثبت و اعمال می‌شود.
+@withyashar
+</div>
+
+## withyashar — post 11188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هند: حمله به یک کشتی ما در نزدیکی
+سواحل عمان غیرقابل قبول است
+
+یک کشتی هندی توسط افراد ناشناس دزدیده شده و به سمت ایران اسکورت میشود
+@withyashar
+</div>
+
+## withyashar — post 11187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس داده ها , شرکت تتر مبلغ 344 میلیون دلار USDT مرتبط با بانک مرکزی ایران رو فریز کرده و دلیلش هم بخاطر دور زدن تحریم‌ها بوده که شرکت آرکهام کیف پول‌های مرتبط رو شناسایی کرده
+@withyashar
+</div>
+
+## withyashar — post 11186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: کیفرخواست زیباکلام و مدیرمسئول خبرگزاری آنا صادر شد ممنوعیت زیباکلام از انجام هرگونه فعالیت رسانه‌ای به مدت سه ماه صادر شده
+@withyashar
+</div>
+
+## withyashar — post 11185
+
+<div align="center">
+  <img src="telegram/content/withyashar_11185_1778752136.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش زمین‌لرزه‌ای بسیار شدید ۵ ریشتری در عمق ۸ کیلومتری بردسیر کرمان را لرزاند
+@withyashar
+</div>
+
+## withyashar — post 11184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو در دادگاه حظور پیدا کرد و گفت: «فیک نیوزها گفتند من به بیماری لاعلاجی مبتلا هستم - این یک صنعت دروغگویی تمام‌عیار است»
+@withyashar
+</div>
+
+## withyashar — post 11183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاج : در جریان آهنگی که معین برای تیم ملی در جام جهنی ۲۰۲۶ می خواند هستیم @withyashar
+</div>
+
+## withyashar — post 11182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : زمین لرزه خیلی شدید کرمان یک دقیقه پیش
+@withyashar
+</div>
+
+## withyashar — post 11181
+
+<div align="center">
+  <a href="telegram/content/withyashar_11181_1778752136.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویربرداری عجیب یا اسکن ۳۶۰ ایلان ماسک از موقعیت با گوشی خودش
+@withyashar
+</div>
+
+## withyashar — post 11180
+
+<div align="center">
+  <a href="telegram/content/withyashar_11180_1778752138.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحنه ای زیبا در چین که کودکان به ترامپ و شی خوشامد میگویند
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 10:55
 ---
 
