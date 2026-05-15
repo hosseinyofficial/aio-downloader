@@ -7,6 +7,208 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 02:42
+---
+
+## persian_trend_official — post 14225
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14225_1778886753.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14224
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14224_1778886753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدباقر السعدی، رهبر حزب‌الله عراق توسط FBI دستگیر شد
+
+🔹السعدی به دلیل فعالیت‌هایش با گردان‌های حزب‌الله عراق و سپاه پاسداران ایران با شش اتهام روبرو است
+
+💢اداره تحقیقات فدرال آمریکا اعلام کرد «محمد السعدی» که از او به‌عنوان یک هدف باارزش مرتبط با تروریسم بین‌المللی یاد شده، بازداشت و به آمریکا منتقل شده است.
+
+🔻بر اساس بیانیه اف‌بی‌آی:
+
+▪️ السعدی و همدستانش متهم به برنامه‌ریزی، هماهنگی و پذیرش مسئولیت دست‌کم ۲۰ حمله تروریستی در اروپا و کانادا هستند
+▪️ مقام‌های آمریکایی مدعی‌اند این شبکه در حال برنامه‌ریزی حملات آینده علیه آمریکا نیز بوده است
+▪️ از جمله اهداف احتمالی، مراکز و نهادهای یهودی در نیویورک، کالیفرنیا و آریزونا عنوان شده‌اند
+
+💢اف‌بی‌آی این بازداشت را بخشی از اقدامات دولت ترامپ برای مقابله با تروریسم توصیف کرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498728
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498728_1778886754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برت بایر: فکر می کنید ایران به زودی تسلیم می شود؟ ترامپ: بله، شک ندارم. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498727
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498727_1778886755.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برت بایر از فاکس: آیا تاب آوری ایران را دست کم گرفتید؟ 🔹 ترامپ: چیزی را دست کم نگرفتم ما می توانیم پل ها و ظرفیت برق آنها را در دو روز از بین ببریم.‌‌ 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498726
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498726_1778886756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران گفت: «ما واقعاً تقریباً به چارچوب یک توافق رسیده بودیم؛ بدون سلاح هسته‌ای. قرار بود آن‌ها “غبار هسته‌ای” را به ما تحویل بدهند... و هر بار که به توافقی می‌رسیدند، روز بعد طوری رفتار می‌کردند که انگار اصلاً چنین گفت‌وگویی نداشته‌ایم.» 》OPT《…
+</div>
+
+## OfficialPersiaTwiter — post 498725
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498725_1778886758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای یدیعوت آحارونت به نقل از منابع خود: در حالی که ترامپ همچنان تهدید می‌کند که ممکن است به گزینه نظامی متوسل شود، فضای انتظار و نگرانی در اسرائیل حاکم شده است؛ همه منتظر تصمیم او درباره ایران هستند، در حالی که تهران می‌گوید پیام‌هایی از واشنگتن دریافت…
+</div>
+
+## OfficialPersiaTwiter — post 498724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای ترامپ درباره ایران: «خب، به هر حال ما به یک راه‌حل خواهیم رسید. بنابراین یا این مسئله به‌صورت خشونت‌آمیز حل می‌شود یا بدون خشونت. و من خیلی ترجیح می‌دهم که بدون خشونت باشد.» 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای ترامپ درباره ایران:
+
+«خب، به هر حال ما به یک راه‌حل خواهیم رسید. بنابراین یا این مسئله به‌صورت خشونت‌آمیز حل می‌شود یا بدون خشونت. و من خیلی ترجیح می‌دهم که بدون خشونت باشد.»
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای آمریکا: دستگیری محمدباقر الساعدی، رهبر حزب‌الله عراق و انتقال او به ایالات متحده
+
+🔸وزارت دادگستری آمریکا مدعی شد:
+
+🔹الساعدی به دلیل فعالیت‌هایش با گردان‌های حزب‌الله عراق و سپاه پاسداران ایران با شش اتهام روبه‌رو است.
+
+🔹الساعدی متهم است که دیگران را به حمله به منافع آمریکا و اسرائیل هدایت کرده است/جماران
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281157
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281157_1778886759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+دولت ایالات متحده به دنبال مجازات اعدام برای مظنونی است که سال گذشته به قتل دو نفر از کارکنان سفارت اسرائیل در واشنگتن متهم شده است.
+
+جینین پیرو، دادستان ناحیه کلمبیا، روز جمعه درخواست مجازات اعدام برای سه مورد از مجموع ۱۳ اتهام علیه الیاس رودریگز ۳۱ ساله را ارائه کرد. پس از محدودیت‌های اعمال‌شده در دوره جو بایدن، رئیس جمهور سابق آمریکا، دونالد ترامپ، از مجازات اعدام فدرال حمایت کرد.
+
+مقام‌های قضایی آمریکا ادعا می‌کنند که رودریگز پیش از شلیک در خارج از موزه یهودیان پایتخت به سمت زوج یارون لیشینسکی، ۳۰ ساله، و سارا لین میلگریم، ۲۶ ساله، فریاد زده بود «فلسطین را آزاد کنید.»
+
+آقای رودریگز پس از این حمله دستگیر شد و در دادگاه خود را بی‌گناه دانسته است.
+
+اگر رودریگز به اتهام قتل یک مقام خارجی، شلیک با اسلحه گرم در حین جرم خشونت‌آمیز و قتل از طریق استفاده از اسلحه گرم مجرم شناخته شود، دادستان ناحیه کلمبیا برای او درخواست اعدام خواهد کرد.
+
+https://bbc.in/496s8el
+📷 X/Reuters
+@BBCPersian
+</div>
+
+## Tans_Footbali — post 236325
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236325_1778886759.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برت بایر از فاکس: فکر می‌کنی ایران به زودی تسلیم می‌شود؟
+
+ترامپ: بله، هیچ شکی ندارم
+
+💛@Tans_Footbali
+</div>
+
+## withyashar — post 11361
+
+<div align="center">
+  <a href="telegram/content/withyashar_11361_1778886761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما ۹ تا دوربین مختلف در فضا روی سایت هسته ای ایران داریم
+
+می‌تونیم اسم طرف رو هم بخونیم
+مثلاً اگه اسمش محمد باشه، ‌که خب بیشترشون محمدن، تقریباً می‌تونیم حدس بزنیم که حدود ۵۰٪ اطلاعاتش درست در میاد
+@withyashar
+</div>
+
+## withyashar — post 11360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
+- ما فقط دو ماه و نیم اونجا بودیم
+- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
+@withyashar
+</div>
+
+## withyashar — post 11359
+
+<div align="center">
+  <a href="telegram/content/withyashar_11359_1778886762.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجریان صداوسیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
+😂😂
+@withyashar
+</div>
+
+## withyashar — post 11358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط حال من رو فروشنده های بازار که با مردم سر و کله میززند و جماعت زبون نفهم و میبینند درک میکنند
+</div>
+
+## withyashar — post 11357
+
+
+
+
+## withyashar — post 11356
+
+
+
+
+---
 📅 بروزرسانی: 1405/02/26 01:33
 ---
 
@@ -209,11 +411,6 @@ https://bbc.in/3PJL9ww
 </div>
 
 ## withyashar — post 11343
-
-
-
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
