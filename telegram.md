@@ -7,6 +7,495 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 23:25
+---
+
+## persian_trend_official — post 14211
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14211_1778874927.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹فرزند عبدالرحیم موسوی
+
+💢جنازه پدرم که روز ا‌ول جنگ در دفتر خامنه ای کشته شد ،نزدیک به 30 روز زیر آوار حملات مانده بود
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14210
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14210" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 7.07 مگابایت
+
+اتاق جنگ جمعه 25 اردیبهشت | تلاش امارات برای دور بعدی جنگ با ایران
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/MneL4ZkKs1A?feature=share
+</div>
+
+## OfficialPersiaTwiter — post 498708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کشف جسد دو کوهنورد دیگر در الوند 🔹رئیس جمعیت هلال‌احمر استان همدان از پیدا شدن جسد دو کوهنورد دیگر مفقود شده کوهستان الوند پس از دو روز جستجو خبر داد. 🔹 جمعه ۳ بهمن چهار کوهنورد در ارتفاعات الوند به دلیل ریزش بهمن مفقود شدند که تیم‌های هلال‌احمر برای یافتن…
+</div>
+
+## OfficialPersiaTwiter — post 498707
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498707_1778874928.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹دستور مستقیم نخست وزیر عراق به کلیه گمرکات عراق به‌منظور عبور ترانزیت کالاهای ایرانی از کشور عراق به ایران
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنظرم اصن معلوم نمیکنه ترامپ از چین برگرده چی میشه الکی حدس نزنیم. بعید نیست یهو تایوان رو بده به ایران تنگه رو بده به لبنان روبیو رو بده به سمنان. هیچ بعید نیست 》نریاوش《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498705
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498705_1778874929.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید و عجیب ترامپ
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبش قبر یک سنگ قدیمی و مشکوک در محوطه‌ای پشت دانشگاه تغذیه تهران به کشف ماجرایی عجیب منجر شد. دانشجویان هنگام قدم زدن در زمین خالی پشت دانشگاه در شهرک غرب، متوجه سنگ قبری کهنه با شعری حک‌شده شدند که وجود لایه سیمان زیر آن با قدمت ظاهری سنگ همخوانی نداشت
+
+🔹دانشجویان موضوع را به پلیس اطلاع دادند و مأموران پس از بررسی، گزارش را به بازپرس کشیک قتل دادسرای جنایی تهران اعلام کردند. بازپرس با احتمال دفن غیرقانونی، دستور بررسی دقیق‌تر و نبش قبر را صادر کرد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498703
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498703_1778874930.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثبت کمترین افت تولید نفت در دوره جنگ توسط ایران
+
+🔹تولید نفت اغلب کشورهای حاشیه خلیج فارس در آوریل ۲۰۲۶ با افت قابل‌توجهی روبه‌رو شده است.
+
+🔹عربستان از حدرد ۱۱ به ۶.۷۶ میلیون بشکه و عراق از ۴.۱۵ به ۱.۳۸ میلیون بشکه در روز رسیده است.
+
+🔹ایران اما با تولید ۲.۸۵ میلیون بشکه‌ای، کمترین افت را در میان تولیدکنندگان بزرگ منطقه ثبت کرده است.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدل‌ایست‌ای: ایران به کریدور زمینی پاکستان روی می‌آورد 🔹در حالی که فشار نیروی دریایی آمریکا دسترسی ایران به خلیج فارس را مختل می‌کند، تهران به سمت شرق روی می‌آورد. 🔹مسیرهای جدید تجارت زمینی با پاکستان به کالاهایی که به مقصد ایران هستند اجازه می‌دهد تا از…
+</div>
+
+## OfficialPersiaTwiter — post 498701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلسه سرنوشت‌ساز برای حضور یا عدم حضور ایران در جام جهانی ۲۰۲۶ تاج، رئیس فدراسیون فوتبال ایران: 🔹فردا یا پس فردا در ترکیه جلسه‌ سرنوشت‌سازی با فیفا داریم چون باید به ما گارانتی بدهند. 🔹مسئله ویزا حل نشده و هنوز هیچ روادیدی برای اعضای تیم ملی فوتبال ایران…
+</div>
+
+## OfficialPersiaTwiter — post 498700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برکناری پیروانی از پرسپولیس رسمی شد 🔹باشگاه پرسپولیس: باتوجه به حضور نیافتن افشین پیروانی در تمرینات تیم، قرارداد همکاری با او به‌صورت رسمی خاتمه یافت. 🔹پیروانی در روزهای ابتدایی حمله آمریکا به ایران به آمریکا سفر کرده و در تمرینات پرسپولیس حاضر نشده است.…
+</div>
+
+## OfficialPersiaTwiter — post 498699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الجزیره: هیئت‌های لبنان و اسرائیل برای شرکت در دومین روز از مذاکرات بین خود، به مقر وزارت امور خارجه آمریکا رسیدند. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرانسه حضور ناو هواپیمابر شارل دوگل در تنگه هرمز را تکذیب کرد وزارت نیروهای مسلح فرانسه: 🔹ناو هواپیمابر شارل دوگل در حال حاضر در تنگه هرمز نیست. 🔹تحرکات این نا‌و بخشی از یک مأموریت دریایی گسترده‌تر در دریای سرخ و منطقه خلیج عدن است. 🔹گروه ضربت این ناو…
+</div>
+
+## OfficialPersiaTwiter — post 498697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات و هند توافقنامه‌ همکاری نظامی امضا کردند
+
+🔹«محمد بن زاید آل نهیان»،  رئیس امارات متحده عربی و «نارندرا مودی»، نخست وزیر هند امروز شاهد امضای چند توافقنامه و یادداشت تفاهم با هدف گسترش همکاری دو کشور و توسعه آن در چارچوب شراکت استراتژیک بودند.
+🔹امارات و هند ۳ یادداشت تفاهم در حوزه‌های مختلف از جمله دریانوردی امضا کردند. همچنین دو کشور ۳ توافقنامه برای سرمایه‌گذاری در هند به ارزش کلی حدود ۵ میلیارد دلار امضا کردند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498696
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498696_1778874931.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعیین جایزه ۲۰۰ هزار دلاری توسط FBI برای کسب اطلاع از افسر سابق نیروی هوایی آمریکا که به ایران پیوسته و اطلاعات نظامی حیاتی را لو داده است
+
+شبکه فاکس‌نیوز گزارش داده است:
+🔹«مونیکا ویت» متخصص سابق نیروی هوایی ظاهراً از سال ۲۰۱۳ فرار کرده و اطلاعات طبقه‌بندی شده دفاع ملی را در اختیار تهران قرار داده است.
+🔹او متهم است با استفاده از دسترسی‌های امنیتی خود، هویت همکاران سابق و جزئیات پروژه‌های حساس اطلاعاتی آمریکا را به مأموران ایرانی لو داده است.
+🔹مقامات امنیتی آمریکا معتقدند ویت پس از خروج از کشور، همکاری نزدیکی با نهادهای اطلاعاتی ایران آغاز کرده و در عملیات‌های سایبری علیه پرسنل نظامی آمریکا نقش داشته است.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلان ماسک این ویدئو را از حاشیه‌های خودش و تفاوت با بقیه حاضران در ضیافت شام چین و آمریکا منتشر کرد 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام امنیتی به کانال ۱۲ اسرائیل: موافقت رده سیاسی برای ترور عزالدین حداد حدود یک هفته و نیم پیش به ارتش اسرائیل داده شد. در تمام این مدت رصد اطلاعاتی عزالدین حداد مستمر بود و به دلیل فرصت عملیاتی با احتمال موفقیت بالا، حمله هم اکنون انجام شد. 》OPT《 …
+</div>
+
+## bbcpersian — post 281153
+
+<div align="center">
+  <a href="telegram/content/bbcpersian_281153_1778874932.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم جمعه ۲۵ اردیبهشت ۱۴۰۵
+@BBCPersian
+</div>
+
+## bbcpersian — post 281152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت خارجه آمریکا می‌گوید آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز تمدید شده است
+
+تامی پیگوت، سخنگوی وزارت خارجه آمریکا، می‌گوید تمدید آتش‌بس میان اسرائیل و لبنان پس از دو روز مذاکرات «بسیار سازنده» با میانجیگری ایالات متحده مورد توافق قرار گرفته است.
+
+آقای پیگوت گفت که مذاکرات «راهبرد سیاسی» در تاریخ ۲ و ۳ ژوئن از سر گرفته خواهد شد، در حالی که «راهبرد امنیتی» در ۲۹ مه با حضور هیئت‌های نظامی اسرائیل و لبنان در پنتاگون آغاز خواهد شد.
+
+او در پستی در شبکه اجتماعی ایکس نوشت: «ما امیدواریم که این مذاکرات به پیشبرد صلح پایدار بین دو کشور، به رسمیت شناختن کامل حاکمیت و تمامیت ارضی یکدیگر و ایجاد امنیت واقعی در امتداد مرز مشترک آنها منجر شود.»
+
+https://bbc.in/3RHhJzE
+@BBCPersian
+</div>
+
+## bbcpersian — post 281151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل برای بخش‌هایی از شهر صور لبنان دستور تخلیه صادر کرد
+
+آویخای ادرعی، سخنگوی ارتش اسرائیل، از ساکنان بخش‌هایی از شهر صور در جنوب لبنان خواست تا خانه‌های خود را تخلیه کنند و تهدید به حمله به این شهر کرد.
+
+او در پستی در شبکه اجتماعی ایکس با انتشار نقشه‌ای به ساکنان دستور داد منطقه نزدیک چندین ساختمان را تخلیه کنند و مدعی شد که این ساختمان‌ها توسط حزب‌الله مورد استفاده قرار می‌گیرند.
+https://bbc.in/4uenEdV
+@BBCPersian
+</div>
+
+## bbcpersian — post 281150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پاکستان از آزاد شدن ۳۱ خدمه ایرانی و پاکستانی یک کشتی که به وسیله آمریکا توقیف شده بود، خبر داد
+
+اسحاق دار، وزیر خارجه پاکستان روز جمعه از آزادی ۲۰ تبعه ایرانی و ۱۱ نفر از اتباع خود خبر داد. این افراد در کشتی‌هایی بودند که توسط آمریکا در آب‌های آزاد توقیف شده بودند.
+
+مشخص نشده است که این افراد سرنشینان کدام کشتی‌ بودند.
+
+وزیر خارجه پاکستان در شبکه ایکس نوشت که آنها جمعه شب از طریق سنگاپور به بانکوک رفتند و قرار است با هواپیما به اسلام‌آباد، پایتخت پاکستان منتقل شوند. او گفت که قرار است اتباع ایرانی از پاکستان به ایران منتقل شوند.
+
+وزیر خارجه پاکستان گفت که همه افراد در «سلامت هستند و روحیه خوبی دارند.»
+
+پاکستان نقش میانجی مذاکرات میان آمریکا و ایران را داشته است.
+
+وزیر خارجه پاکستان از وزیر خارجه و نخست‌وزیر سنگاپور برای مشارکت در روند انتقال این افراد که به درخواست پاکستان انجام شده است و همچنین از عباس عراقچی،‌ وزیر خارجه ایران به خاطر «اعتماد به پاکستان» تشکر کرده است.
+
+او همچنین از مارکو روبیو، وزیر خارجه آمریکا «برای هماهنگی نزدیک در تسهیل» روند بازگرداندن این ۳۱ تبعه ایرانی و پاکستانی تقدیر کرد.
+
+https://bbc.in/4uenEdV
+@BBCPersian
+</div>
+
+## bbcpersian — post 281149
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281149_1778874935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مقام‌های قضائی جمهوری اسلامی ایران می‌گویند حدود ۲۵۰ هزار شکایت حقوقی و کیفری در ارتباط با آنچه «جنایات جنگی آمریکا و اسرائیل» توصیف کرده‌اند، در دستگاه قضایی این کشور ثبت شده و در مرحله رسیدگی قرار دارد.
+
+عبدالصمد میرحسینی، معاون قضایی دادستان کل کشور، در گفت‌وگو با میزان، خبرگزاری قوه قضاییه ایران، گفته است این پرونده‌ها در «شعب ویژه دادسراها و دادگاه‌ها» در حال بررسی است و نهادهای مختلف حکومتی در جمع‌آوری اسناد و تکمیل ادله با دستگاه قضایی همکاری می‌کنند.
+
+به گفته آقای میرحسینی، مقام‌های قضایی امیدوارند این روند در آینده نزدیک به صدور حکم منجر شود و جمهوری اسلامی تلاش می‌کند مستندات این پرونده‌ها «منطبق با ضوابط بین‌المللی» تنظیم کند تا احکام صادرشده قابلیت اجرا در خارج از ایران را نیز داشته باشد.
+
+ادامه خبر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 AFP via Getty Images
+https://bbc.in/49wGvIY
+@BBCPersian
+</div>
+
+## Lichargoo — post 24884
+
+<div align="center">
+  <img src="telegram/content/Lichargoo_24884_1778874936.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂😂
+
+
+
+@Lichargoo
+</div>
+
+## networkti — post 357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 آموزش کار با برنامه دفید (Thefeed): برای دریافت آخرین نسخه و کانفیگ‌ها، به کانال زیر بروید و برنامه را نصب‌ کنید و لینک کانفیگ را کپی کنید: @thefeedconfig ورود به برنامه: ۱. برنامه را باز کنید و زبان را انتخاب نمایید. ۲. در قسمت مشخص شده (thefeed://...)،…
+</div>
+
+## Tans_Footbali — post 236322
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236322_1778874937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید و عجیب دونالد ترامپ:
+
+کشور ایران ایالت ۲۴۳اُم آمریکا است!
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236321
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236321_1778874938.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽ چلسی 
+🏴 - 
+🏴 منچستر سیتی
+
+🏆 فینال جام حذفی انگلیس 
+🏴
+
+🕔 شنبه ساعت ۱۷:۳۰
+🏟 ورزشگاه ومبلی لندن
+
+🎲 با بیش از ۵۵۰ نوع آپشن پیش‌بینی
+
+👆 با بالاترین‌ ضرایب ‌پیش‌بینی
+
+
+📊 نگاهی به آمار دو تیم:
+
+✅ چلسی در ۶ دیدار اخیر خود در یک برد و یک تساوی کسب کرده و چهار بازی را واگذار کرده است.
+
+✅ منچستر سیتی در ۱۰ دیدار اخیر خود هشت برد و یک تساوی کسب کرده و تنها یک بازی را واگذار کرده است.
+
+📈 میانگین گل در ۱۰ دیدار اخیر چلسی ۲.۸ گل در هر بازی بوده است.
+
+📈 میانگین گل در ۱۰ دیدار اخیر منچستر سیتی در ۳.۱ گل در هر بازی بوده است.
+
+
+🧠 روند موفق، نیازمند توقف‌های آگاهانه است.
+
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+
+💻 @BetForward
+</div>
+
+## Tans_Footbali — post 236320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ مخالفت خود را با اعلام رسمی استقلال تایوان ابراز کرد و گفت:
+
+من دنبال این نیستم که کسی مستقل شود. و می‌دانید، ما قرار است ۹۵۰۰ مایل سفر کنیم تا در جنگی شرکت کنیم. من دنبال این نیستم.
+
+می‌خواهم آنها آرام شوند. می‌خواهم چین آرام شود.
+
+منبع: فاکس نیوز
+
+پ.ن: اهل دلاش میدونن چه خبره😂
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236319
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236319_1778874939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه آمریکا :
+
+ونزوئلا 7340 کیلوگرم اورانیوم غنی‌شده‌‌‌ش رو به آمریکا منتقل کرد
+
+💛@Tans_Footbali
+</div>
+
+## hamclasixii — post 75383
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75383_1778874939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایلان ماسک: اینستاگرام برای دختران است. هر وقت که آقایان اینستاگرام‌شان را برایم می‌فرستند، می‌پرسم در حال تغییر جنسیت هستید؟
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11332
+
+<div align="center">
+  <a href="telegram/content/withyashar_11332_1778874940.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏مایک والتز، سفیر آمریکا در سازمان ملل ، می‌گوید که یکی از «نتایج بزرگ» سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیرد.
+@withyashar
+</div>
+
+## withyashar — post 11331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری :
+
+گویا ترامپ با یک حمله محدود جهت فشار بر سر تسلیم شدن موافقت کرده است
+@withyashar
+</div>
+
+## withyashar — post 11330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشنگتن پست: جمهوری اسلامی واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
+@withyashar
+</div>
+
+## withyashar — post 11328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
+@withyashar
+</div>
+
+## withyashar — post 11327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## withyashar — post 11326
+
+<div align="center">
+  <a href="telegram/content/withyashar_11326_1778874943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## withyashar — post 11325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگم فالورایه شاهزاده داره کم میشه قبله جنگ ۹.۹ بود الان ۹.۷ شده
+</div>
+
+## withyashar — post 11324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگم فالورایه شاهزاده داره کم میشه قبله جنگ ۹.۹ بود الان ۹.۷ شده
+</div>
+
+## withyashar — post 11323
+
+
+
+
+## withyashar — post 11322
+
+<div align="center">
+  <img src="telegram/content/withyashar_11322_1778874944.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ آ۴ هست!
+
+واقعیت اینکه شاید الان بشه جلوی اتصال به اینترنت رو گرفت ولی تا چند سال آینده عملا غیرممکن میشه!
+@withyashar
+</div>
+
+## withyashar — post 11321
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هادی چوپان، در یک مسابقه استعدادیابی که از صدا و سیمای رژیم پخش می‌شود، گفت: «ما با زحمت و هزار دردسر به قله رسیدیم، نباید بازیچه دلقکان مجازی شویم.»
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 21:36
 ---
 
