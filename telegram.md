@@ -7,6 +7,597 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 13:38
+---
+
+## persian_trend_official — post 14183
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14183_1778839683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ضیافت شام پکن، لحظه‌ای که شی جین‌پینگ برای چند دقیقه میز رو ترک می‌کنه…
+
+▪️دونالد ترامپ هم از فرصت استفاده می‌کنه و می‌ره سراغ دفترچه شخصی 😁
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر امور خارجه عباس عراقچی اعلام کرده که پیام‌های متناقض از سوی واشنگتن روند مذاکرات را پیچیده کرده است.
+
+او در اظهاراتی که از سوی رسانه رسمی ایران منتشر شده، تأکید کرده ایران مسئول اختلالات در تنگه هرمز نیست و آغازگر جنگ هم نبوده و صرفاً در حال دفاع از خود است.
+
+💢عراقچی همچنین موضع تهران را تکرار کرده که تنگه هرمز برای عبور کشتی‌های کشور‌های «دوست» باز است، به شرط هماهنگی با مقامات ایرانی، اما برای کشور‌های «دشمن» محدود خواهد بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14181
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14181_1778839685.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: آمریکا تمامی شروط ایران را رد کرده است
+
+💢خبرنگار الجزیره گزارش داد تهران به‌صورت رسمی پاسخ واشینگتن به پیشنهاد ارائه‌شده از سوی ایران را دریافت کرده است.
+
+بر اساس این گزارش:
+
+▪️ ایالات متحده تمامی شروط مطرح‌شده از سوی ایران را رد کرده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢رئیس ستاد کل ارتش اسرائیل در جریان جنگ ایران به طور مخفیانه به امارات متحده عربی سفر کرد و با شیخ محمد بن زاید دیدار کرد — که به فهرست فزاینده‌ای از مقامات ارشد اسرائیلی پیوست که سفرهای مخفیانه در زمان جنگ به ابوظبی داشتند.
+
+💢امارات متحده عربی همچنان این دیدارها را انکار می‌کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14179
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14179_1778839685.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا برای اطلاعات درباره واحد تولید پهپاد سپاه جایزه تعیین کرد
+
+💢وزارت خارجه آمریکا اعلام کرد برای دریافت اطلاعات درباره ۶ فرد مرتبط با واحد تولید پهپاد نیروی قدس سپاه پاسداران جایزه مالی تعیین کرده است.
+
+بر اساس بیانیه واشینگتن:
+
+▪️ این افراد با شرکت «کیمیا پارت سیوان» مرتبط هستند
+▪️ آمریکا مدعی است این مجموعه در آزمایش، توسعه و تأمین پهپادها نقش دارد
+▪️ اطلاعات درباره این افراد، همکاران یا شبکه‌های مالی آن‌ها می‌تواند مشمول جایزه شود
+
+💢برنامه پاداش امنیتی وزارت خارجه آمریکا اعلام کرده میزان این جایزه تا ۱۵ میلیون دلار خواهد بود.
+
+💢در متن منتشرشده آمده است:
+
+▪️ «به ما کمک کنید به منابع مالی سپاه ضربه بزنیم»
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14178
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14178_1778839685.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ پکن را ترک کرد؛ پایان سفر رئیس‌جمهور آمریکا به چین
+
+💢دونالد ترامپ پس از پایان سفر خود به چین، سوار بر هواپیمای ریاست‌جمهوری آمریکا پکن را ترک کرد.
+
+در مراسم بدرقه:
+
+▪️ فرش قرمز برای رئیس‌جمهور آمریکا پهن شده بود
+▪️ حاضران پرچم‌های آمریکا و چین را در دست داشتند
+▪️ یک گروه موسیقی نظامی نیز در مراسم خداحافظی اجرا داشت
+
+💢سفر ترامپ به چین با دیدارهای مهم با شی جین‌پینگ و گفت‌وگو درباره موضوعاتی از جمله ایران، تایوان، تجارت و تنگه هرمز همراه بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14177
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14177_1778839686.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل مدعی انهدام پرتابگر راکتی حزب‌الله شد
+
+💢ارتش اسرائیل اعلام کرد یک سکوی پرتاب راکت متعلق به حزب‌الله را که برای شلیک به شمال اسرائیل استفاده شده بود، هدف قرار داده و منهدم کرده است.
+
+بر اساس ادعای ارتش اسرائیل:
+
+▪️ این پرتابگر در منطقه «زبقین» در جنوب لبنان قرار داشته است
+▪️ حمله پس از شلیک راکت‌ها به سمت شمال اسرائیل انجام شده
+▪️ این موضع متعلق به نیروهای حزب‌الله بوده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14176
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14176_1778839686.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چین خواستار مذاکره برای پایان جنگ ایران شد
+
+💢وزارت خارجه چین اعلام کرد ثبات در خلیج فارس و خاورمیانه در شرایط کنونی مهم‌ترین مسئله است و ادامه جنگ ایران پیامدهای خطرناکی برای منطقه به‌دنبال دارد.
+
+💢سخنگوی وزارت خارجه چین تأکید کرد:
+
+▪️ باید هرچه سریع‌تر راهی برای پایان جنگ پیدا شود
+▪️ فرصت آغاز مذاکرات و پایان درگیری‌ها نباید از دست برود
+▪️ بازگشایی و حفظ تردد آزاد در تنگه هرمز ضروری است
+▪️ گفت‌وگو و مذاکره تنها مسیر مناسب برای حل بحران محسوب می‌شود
+
+💢پکن همچنین هشدار داد هرگونه اختلال در تنگه هرمز می‌تواند تبعات گسترده‌ای برای اقتصاد و امنیت جهانی داشته باشد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14175
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14175_1778839687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امارات ظرفیت صادرات نفت بدون عبور از تنگه هرمز را دو برابر می‌کند
+
+💢امارات متحده عربی اعلام کرد تا سال ۲۰۲۷ ظرفیت صادرات نفت خام خود بدون نیاز به عبور از تنگه هرمز را دو برابر خواهد کرد.
+
+بر اساس گزارش‌ها:
+
+▪️ شرکت ملی نفت ابوظبی در حال ساخت خط لوله جدیدی به بندر فجیره در دریای عمان است
+▪️ هدف این پروژه کاهش وابستگی به تنگه هرمز عنوان شده است
+▪️ بسته‌شدن مسیر هرمز در جریان جنگ ایران، بازارهای جهانی را دچار بحران کرده است
+
+💢امارات هم‌اکنون نیز یک خط لوله با ظرفیت روزانه ۱.۵ میلیون بشکه از میادین نفتی داخلی به بندر فجیره در اختیار دارد؛ مسیری که در جریان تنش‌های اخیر نقش حیاتی برای صادرات نفت این کشور ایفا کرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مامانم زنگ زده کجایی؟
+میگم اومدم کلینیک بچمو عقیم کنم
+بنده خدا غش کرد فکر کرد پسرمو میگم
+گربمم بچمه دیگه مادر من
+
+》میگائیل《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498601
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498601_1778839687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله نیروی هوایی اسرائیل به صور لبنان
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: تهران رسما پاسخ واشنگتن به پیشنهاد ۱۴ بندی‌اش را دریافت کرده است و آمریکا تمام شروط ایران را رد کرده است. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498599
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498599_1778839688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خیلی خوبه، تو ضیافت پکن یه لحظه شی جین پینگ پا میشه بره بیرون ترامپ دفترچه شخصی طرف رو یواشکی نگاه میکنه ببینه چی نوشته 😂
+
+》Ali《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خنثی‌سازی بمب یک‌تنی در عمق ۱۸ متری زمین
+
+سپاه لرستان: پس از ۶ روز عملیات گودبرداری توسط مهندسی ناحیه مقاومت بسیج دلفان با بررسی‌های تخصصی، یک بمب ۲۰۰۰ پوندی از نوع mk84 را در عمق ۱۸ متری زمین در شهرستان دلفان شناسایی و خنثی نمایند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498595
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498595_1778839689.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
+
+🔹در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
+
+🔹این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
+
+🔹هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غریب‌آبادی‌: امارات به ایران خیانت کرد معاون وزیر خارجه ایران: 🔹امارات نقشی قابل توجه در حمایت و تسهیل تجاوز نظامی علیه جمهوری اسلامی ایران ایفا کرده است. 🔹طرفی که خود در شکل‌گیری و تشدید تنش‌ها سهیم بوده، فاقد جایگاه لازم برای طرح اتهامات و ادعاهای سیاسی…
+</div>
+
+## OfficialPersiaTwiter — post 498593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاده چالوس از ساعت ۱۴ امروز یکطرفه می‌شود
+
+🔹رئیس پلیس راه: از ساعت ۱۴ امروز ورود خودروها به مقصد چالوس از آزادراه تهران-شمال ممنوع خواهد شد.
+🔹از ساعت ۱۵ مسیر پل زنگوله تا چالوس به‌طور کامل مسدود می‌شود.
+🔹از ساعت ۱۶ محور مرزن‌آباد به سمت تهران یک‌طرفه می شود و این محدودیت‌ها تا ساعت ۲۴ ادامه دارد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498592
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498592_1778839690.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلفی بنیانگذار و مدیرعامل شیائومی با ایلان ماسک که سوژه رسانه‌ها شد • OPT • @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پارچ به جای آب معدنی؛ دولت استفاده از PET را ممنوع می‌کند
+
+🔹یک نهاد اندیشه‌ورز فعال در حوزه اقتصاد پیشنهاد داد، مصرف وسایل و خوراکی‌های نیازمند PET (مواد اولیهٔ وسایل بسته‌بندی) در دولت ممنوع شود.
+🔹پیشتر یکی از پتروشیمی‌های تولیدکننده PET در اثر جنگ اخیر علیه ایران تولید خود را متوقف کرده بود.
+🔹ماده اولیه PET در صنایع بسته‌بندی از جمله آب معدنی، نوشابه و ... کاربرد دارد و بخش قابل توجهی از خوراکی‌ها در دپلت مورد استفاده است. برای مثال می‌توان به جای آب معدنی در جلسات از پارچ و لیوان استفاده کرد‌.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498590
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498590_1778839692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برف و کولاک در نوریلسک روسیه؛ زمستان در میانه بهار
+
+🔹ویدئوهای منتشرشده از شهر نوریلسک روسیه نشان می‌دهد این منطقه با وجود قرار داشتن در میانه بهار، همچنان شاهد برف، سرمای شدید و وزش بادهای سرد است.
+🔹نوریلسک که یکی از سردترین شهرهای جهان به شمار می‌رود، به آب‌وهوای سخت و طولانی بودن زمستان‌هایش شهرت دارد.
+🔹 تصاویر تازه، خیابان‌ها و ساختمان‌های این شهر را در میان کولاک و برف نشان می‌دهد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498589
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498589_1778839693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا وضعیت عجیبی شده
+این وسط هم پوبون داره برای درمان دوست دختر جدیدش از مردم پول جمع میکنه
+
+》سباستین《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498588
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498588_1778839694.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راز ته‌دیگ پارس‌خزر؛ پروژه‌ای که ژاپنی‌ها برای ایرانی‌ها ساختند
+
+ته‌دیگ معروف پلوپزهای پارس‌خزر اتفاقی نبود؛ دهه ۴۰، مهندسان شرکت ژاپنی ماتسوشیتا (پاناسونیک فعلی) با کمک دکتر نقی‌زاده، حدود دو ماه روی سلیقه ایرانی‌ها تحقیق کردند تا پلوپزی بسازند که ته‌دیگش به ذائقه ایرانی نزدیک باشد.
+
+می‌گویند مادر دکتر نقی‌زاده هر روز مدل‌های مختلف را امتحان می‌کرد تا بهترین نتیجه به دست بیاید؛ پروژه‌ای که بعد از حدود ۶۰ سال هنوز طعمش در خانه‌های ایرانی مانده است.
+
+روح پروفسور نقی‌زاده عزیز شاد و یادش گرامی باد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏لیلا حاتمی تو یه فیلمه که اسمش یادم نیست داشت گریه می‌کرد و می‌گفت خدایا چرا هر کی به من می‌رسه می‌فهمه من آدمی‌ام که میشه بهش توهین کرد؟
+زیاد به این دیالوگ فکر می‌کنم.
+
+》کاردیونا《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498586
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498586_1778839694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوبی از لحظه دست ندادن سیدعباس عراقچی با خانم معاون وزیر خارجه ویتنام در اجلاس وزرای خارجه بریکس در هند که بسیار پربازدید شد/آوش
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اجتناب وزارت خارجه چین از پاسخ به سوالات در مورد توافق‌های اعلام شده از سوی ترامپ
+
+سخنگوی وزارت خارجه چین در کنفرانس خبری از پاسخ دادن به سوالات در مورد توافق‌های تجاری‌ای که رئیس‌جمهور آمریکا اعلام کرده است، اجتناب کرد.
+
+پیشتر دونالد ترامپ به شبکه فاکس‌نیوز گفت که شی‌ جین‌پینگ، رئیس‌جمهور چین، متعهد به چندین توافق تجاری با آمریکا شده است، از جمله خرید ۲۰۰ فروند هواپیمای بوئینگ، نفت آمریکا و همچنین محصولات کشاروزی مانند سویا.
+
+سخنگوی وزارت خارجه چین بدون تایید یا تکذیب این توافق‌های تجاری، در عوض بر اهمیت «اتفاق نظر» دو رهبر در جریان سفر دونالد ترامپ تاکید کرد.
+
+این سخنگو در پاسخ به سوالی دیگر گفت: «اساس روابط اقتصادی و تجاری چین و آمریکا مبتنی بر منفعت دوجانبه و همکاری برد-برد است.»
+
+https://bbc.in/3R12525
+@BBCPersian
+</div>
+
+## bbcpersian — post 281121
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281121_1778839697.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کره جنوبی با طرح مطرح شده از سوی ایران برای دریافت عوارض از کشتی‌های عبوری از تنگه هرمز مخالفت کرده و می‌گوید که چنین اقدامی با اصل آزادی کشتیرانی در آب‌های بین‌امللی مغایرت دارد.
+
+مجلس ایران پیگیر طرحی است که هدف آن دریافت عوارض از کشتی‌های عبوری از تنگه هرمز حتی در شرایط صلح است.
+
+هوانگ جونگ وو، وزیر اقیانوس‌ها و شیلات کره جنوبی گفت که دریافت عوارض از این تنگه «عملا معادل مسدود کردن این آبراه» است.
+
+او تنگه هرمز را با کانال سوئز مقایسه کرد و گفت که «سوئز یک کانال مصنوعی است که دریافت عوارض در آن امری عادی محسوب می‌شود، اما تنگه هرمز یک گذرگاه بین‌المللی دریایی است که تحت قوانین بین‌المللی قرار دارد.»
+
+سئول بارها اعلام کرده است که قصد پرداخت چنین عوارضی را ندارد و «آزادی ناوبری» را اصلی اساسی می‌داند.
+
+بخش بزرگی از واردات انرژی‌ کره جنوبی از خاورمیانه و از مسیر تنگه هرمز انجام می‌شود.
+
+کمتر از دو هفته پیش یک کشتی کره جنوبی هم در منطقه تنگه هرمز هدف حمله قرار گرفت.
+
+📸 Amirhossein KHORGOOEI / ISNA / AFP via Getty Images
+
+https://bbc.in/3R12525
+@BBCPersian
+</div>
+
+## bbcpersian — post 281120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻افزایش قیمت سوخت در هند در پی جهش قیمت جهانی نفت
+
+شرکت‌های دولتی عرضه سوخت در هند برای نخستین بار در چهار سال اخیر قیمت‌ها را افزایش دادند .
+
+جهش قیمت جهانی نفت پس از آغاز جنگ ایران و محدود شدن رفت‌وآمد در تنگه هرمز، باعث فشار بر ذخایر ارزی هند شده است.
+
+هند، سومین واردکننده بزرگ نفت در جهان، از آخرین اقتصادهای بزرگ محسوب می‌شود که قیمت سوخت در جایگاه‌ها را افزایش می‌دهد.
+
+این تصمیم باعث افزایش هزینه کالاهای روزمره برای صدها میلیون نفر خواهد شد.
+
+این اقدام تنها چند روز پس از آن صورت می‌گیرد که نارندرا مودی، نخست‌وزیر هند، از مردم خواست که در مصرف سوخت صرفه‌جویی کنند.
+
+https://bbc.in/3R12525
+@BBCPersian
+</div>
+
+## Lichargoo — post 24880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گذشته رو‌ نگاه میکنی ۲۵۰۰ سال تمدن، آینده رو‌ نگاه میکنی ۲۶ کیر
+</div>
+
+## Pesari_Ke_Konie — post 44939
+
+<div align="center">
+  <img src="telegram/content/Pesari_Ke_Konie_44939_1778839698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
+
+@Pesari_Ke_Konie
+</div>
+
+## Tans_Footbali — post 236309
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236309_1778839698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایننشال‌تایمز: اگر تا ماه آینده تنگهٔ هرمز باز نشود، به‌دلیل تخلیهٔ ذخایر استراتژیک شاهد موج گسترده‌تری از کمبودهای جهانی و افزایش قیمت‌ها در حوزهٔ انرژی خواهیم بود
+
+💛@Tans_Footbali
+</div>
+
+## hamclasixii — post 75377
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75377_1778839699.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دکمه را بزن شسته شوم بلکه این کثافت غم بالاخره از دلم پاک شود
+
+📚 @hamclasix 📚
+</div>
+
+## hamclasixii — post 75376
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75376_1778839699.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز May 15، روز جهانی هدیه دادنِ گل به کسیه که دوسش داریم
+🌹
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11275
+
+
+
+
+## withyashar — post 11274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار الجزیره:
+تهران به‌طور رسمی پاسخ واشنگتن به پیشنهاد خود را دریافت کرده و ایالات متحده تمامی شروط ایران رو رد کرده.
+@withyashar
+</div>
+
+## withyashar — post 11273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂🙌🏾 @withyashar
+</div>
+
+## withyashar — post 11272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : پژوهشگر چینی به CNN گفت که به نشست ترامپ و شی نمره «۹.۹۹ از ۱۰» می‌دهد.
+@withyashar
+</div>
+
+## withyashar — post 11271
+
+<div align="center">
+  <img src="telegram/content/withyashar_11271_1778839700.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد قنطاری، کاردار جدید سوریه در واشنگتن دی سی😬🍔
+@withyashar
+</div>
+
+## withyashar — post 11270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar part3
+</div>
+
+## withyashar — post 11269
+
+<div align="center">
+  <img src="telegram/content/withyashar_11269_1778839700.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂🙌🏾 @withyashar
+</div>
+
+## withyashar — post 11268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون حمله سنگین جمهوری اسلامی به مقر گروه های مخالف در عراق
+@withyashar
+</div>
+
+## withyashar — post 11267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش روزنامه «ساوت چاینا مورنینگ پست» و بازنشر آن توسط «بلومبرگ»، انتظار می‌رود «ولادیمیر پوتین» در حدود ۲۰ مه به «پکن» سفر کند؛ تنها حدود ۵ روز پس از دیدار «شی جین‌پینگ» و «دونالد ترامپ» در پکن.
+
+رسانه‌ها می‌گویند این سفر احتمالاً فقط یک روز طول می‌کشد و بیشتر در قالب یک دیدار کاری و هماهنگی سیاسی انجام می‌شود. همچنین برخلاف سفر ترامپ، ظاهراً خبری از تشریفات بزرگ، رژه رسمی یا استقبال بسیار گسترده نخواهد بود و این سفر در سطحی ساده‌تر و کم‌نمایش‌تر برگزار می‌شود
+@withyashar
+</div>
+
+## withyashar — post 11266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar part2
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 11:12
 ---
 
