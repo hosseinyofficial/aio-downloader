@@ -7,6 +7,349 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 23:59
+---
+
+## persian_trend_official — post 14275
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14275_1778963381.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار بزرگ در بیت‌شمش
+
+💢رسانه‌های عبری از وقوع انفجاری بسیار بزرگ در بیت‌شمش واقع در غرب اسرائیل خبر می‌دهند.
+
+💢این رسانه‌ها با بیان اینکه ارتش مانع از ورود خودروهای امدادی به محل حادثه می‌شود، تصریح کردند این انفجار احتمالاً در تأسیساتی حساس رخ داده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/Lj3xWW7IbLA?feature=share
+</div>
+
+## persian_trend_official — post 14273
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14273_1778963383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار فاکس نیوز
+
+💢ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14272
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14272_1778963384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢پست ترامپ
+
+این آرامش قبل از طوفانه
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظام
+</div>
+
+## persian_trend_official — post 14271
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14271_1778963384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢تکرار تهدید کاخ سفید با انتشار تصویری از ترامپ در اتاق جنگ
+
+💢کاخ سفید پیامی تهدیدآمیز از رئیس جمهوری آمریکا با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد.
+
+💢در پیام کاخ سفید آمده است: «اگر به آمریکایی‌ها آسیب بزنید، یا برای آسیب‌زدن به آمریکایی‌ها توطئه و طرح‌ریزی کنید، ما شما را خواهیم یافت.»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14270
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14270_1778963385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در پلتفرم کست باکس : https://castbox.fm/vi/945937615
+</div>
+
+## persian_trend_official — post 14269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در پلتفرم کست باکس :
+https://castbox.fm/vi/945937615
+</div>
+
+## persian_trend_official — post 14268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در پلتفرم اسپاتیفای :
+
+https://open.spotify.com/episode/2Mw2hfeg12829w5zlJVOkO?si=0nFXW0pdTmCsCyiYukkcsQ
+</div>
+
+## OfficialPersiaTwiter — post 498864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست رونالدو و یارانش در خانه به قهرمانی آسیا نرسید؛ گامبااوزاکای ژاپن در خاک عربستان فاتح لیگ قهرمانان آسیای ٢ شد 🔹 النصر صفر - گامبااوزاکا یک 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498863
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498863_1778963385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کشته شدن یک افسر اسرائیلی در نبردهای لبنان ارتش اسرائیل از کشته شدن یک افسر در نبردهای لبنان خبر داد. رسانه‌های اسرائیلی گزارش دادند که این افسر در جنوب لبنان بر اثر انفجار یک پهپاد انفجاری کشته شده است. این افسر که از تیپ گولانی بود، که در منطقه «دیر سیریان»…
+</div>
+
+## OfficialPersiaTwiter — post 498862
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498862_1778963387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه به نقل از پاکستان:وزیر کشور پاکستان جلسه مهمی در ایران برای تسهیل گفت‌وگو و برقراری صلح برگزار کرد 🔹️حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498861
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498861_1778963387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تکرار تهدید کاخ سفید با انتشار تصویری از ترامپ در اتاق جنگ
+
+کاخ سفید پیامی تهدیدآمیز از رئیس جمهوری آمریکا با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد.
+در پیام کاخ سفید آمده است: «اگر به آمریکایی‌ها آسیب بزنید، یا برای آسیب‌زدن به آمریکایی‌ها توطئه و طرح‌ریزی کنید، ما شما را خواهیم یافت.»
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498860
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498860_1778963388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ درباره ایران در Truth Social 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران و آمریکا بر سر یک موضوع توافق دارند: فعلا درباره سرنوشت ذخایر اورانیوم گفتگو نشود وال‌استریت‌ژورنال نوشت: 🔹در حالی که بن‌بست دیپلماتیک بین تهران و واشنگتن ادامه دارد، یک نقطه اشتراک وجود دارد: هر دو طرف می‌گویند که در حال حاضر درباره سرنوشت ذخایر…
+</div>
+
+## OfficialPersiaTwiter — post 498858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه بارم یه اتفاق بدی برام افتاد فوری با بغض رفتم تو حموم گفتم بذار زیر دوش چمباتمه بزنم یکم زار بزنم :))
+ولی قبل نشستن مجبور شدم ۵ دقیقه با آب سردوگرم ور برم تا دمای آب تنظیم شه :)))) کلا دردم یادم رفت :))))))))
+
+》روانشناسِ روانی《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498857
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498857_1778963389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست رونالدو و یارانش در خانه به قهرمانی آسیا نرسید؛ گامبااوزاکای ژاپن در خاک عربستان فاتح لیگ قهرمانان آسیای ٢ شد
+
+🔹 النصر صفر - گامبااوزاکا یک
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کوثری: هر تعرضی با پاسخ کوبنده مواجه خواهد شد
+
+عضو کمیسیون امنیت ملی مجلس:
+🔹اگر آمریکا یا اسرائیل کوچکترین تعرضی انجام دهند، مردم ما، چه زن و چه مرد، در صحنه حاضر هستند.
+
+🔹دشمن هر توانی داشت در ۴۰ روز گذشته انجام داد، آنها نمی‌توانند به راحتی بمب‌ها و موشک‌های از دست رفته خود را جایگزین کنند، اما ما به راحتی می‌توانیم جبران کنیم.
+
+🔹آنها در هر نقطه‌ای که حضور پیدا کنند، رزمندگان و مردم چنان ضربه‌ای می‌زنند که جز ذلت و خواری نصیبشان نشود.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281241
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281241_1778963389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻مردی در شهر مودنا در شمال ایتالیا با خودرو خود با چندین عابر پیاده برخورد و هشت نفر را زخمی کرد. حال چهار نفر از آنها وخیم گزارش شده است.
+
+یکی از مجروحان زنی است که گفته می‌شود هر دو پایش خرد شده است.
+
+عابران پس از تعقیب راننده خودرو، یک «مرد سی و چند ساله» را دستگیر و به پلیس تحویل دادند.
+
+جورجیا ملونی، نخست‌وزیر ایتالیا، این واقعه را «بسیار جدی» توصیف کرد. همچنین ماسیمو مزتی، شهردار مودنا، در ادامه واکنش خانم ملونی گفت اگر مشخص شود که این یک حمله از پیش برنامه‌ریزی شده بوده، «حتی جدی‌تر» خواهد بود.
+
+این حادثه بعد از ظهر شنبه ۱۶ مه اتفاق افتاد. یک شاهد عینی گفت: «ما دیدیم که خودرو نزدیک می‌شود، به سمت جدول می‌رفت اما ناگهان سرعت گرفت و هنگام برخورد با عابران حداقل ۱۰۰ کیلومتر در ساعت سرعت داشت و ما دیدیم که مردم در حال پرواز هستند.»
+
+شهردار مودنا گفت به نظر می‌رسد که راننده «عمدا به پیاده‌رو رفته، به چند نفر زده و به ویترین یک مغازه کوبیده است».
+به گفته شهردار مودنا، فرد بازداشت‌شده یک تبعه ایتالیایی متولد برگامو، اما «اصالتا مغربی» است.
+
+ادامه از:
+https://bbc.in/4nxF8zv
+📷Reuters
+@BBCPersian
+</div>
+
+## bbcpersian — post 281240
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281240" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه شصت دقیقه روز شنبه ۲۶ اردیبهشت ۱۴۰۵ است
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+با هشتگ BBCPersianRadio# با ما در ارتباط باشید.
+@BBCPersian
+</div>
+
+## bbcpersian — post 281239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📊بازار سهام ایران پس از توقف ناشی از جنگ از سه‌شنبه بازگشایی می‌شود
+
+یک مقام ارشد سازمان بورس و اوراق بهادار ایران تایید کرد که پس از توقف فعالیت‌ها در دوران جنگ با آمریکا و اسرائیل، بازار سهام آن کشور از روز سه‌شنبه بازگشایی خواهد شد.
+
+حمید یاری، معاون نظارت بر بورس‌ها و ناشران سازمان بورس و اوراق بهادار ایران می‌گوید که «بر اساس هماهنگی‌های صورت‌گرفته و پس از اخذ مجوزهای لازم، مقرر شد بازگشایی بازار سهام، انواع صندوق‌های سرمایه‌گذاری در سهام و مشتقات آن‌ از روز سه‌شنبه ۲۹ اردیبهشت ۱۴۰۵ صورت پذیرد.»
+
+او گفت که توقف فعالیت بازار سهام از شروع جنگ، «با هدف صیانت از دارایی سهامداران، جلوگیری از بروز رفتارهای هیجانی و فراهم آوردن شرایط انجام معامله در این بازار با اطلاعات دقیق‌تر و شفاف‌تر صورت‌ گرفت.»
+
+آقای یاری همچنین می‌گوید که با بازگشایی بازار سهام، «شاهد تکمیل فعالیت همه بخش‌های بازار سرمایه خواهیم بود.»
+
+https://bbc.in/4wpp6f4
+@BBCPersian
+</div>
+
+## bbcpersian — post 281238
+
+<div align="center">
+  <a href="telegram/content/bbcpersian_281238_1778963390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️آخرین خبرهای مهم روز شنبه ۲۶ اردیبهشت ۱۴۰۵
+@BBCPersian
+</div>
+
+## thefeedconfig — post 79
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+thefeed-android-v0.18.10-arm64-v8a.apk
+</div>
+
+## networkti — post 359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+thefeed-android-v0.18.10-arm64-v8a.apk
+</div>
+
+## Tans_Footbali — post 236351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: اگر آمریکا بخواد جنگ رو بازم شروع کنه، ما آماده خواهیم بود.
+
+
+💛@Tans_Footbali
+</div>
+
+## hamclasixii — post 75394
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75394_1778963393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با هر 1 گیگابایت اینترنت از طریق VPN چقدر میشه آنلاین موند؟!
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11421
+
+<div align="center">
+  <a href="telegram/content/withyashar_11421_1778963393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوش جان میسپریم به فریدون عزیز تا من موتورم رو گرم کنم ویس بزارم
+@withyashar
+</div>
+
+## withyashar — post 11420
+
+<div align="center">
+  <img src="telegram/content/withyashar_11420_1778963395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : آرامش فبل از طوفان
+
+قایق تندرو با پرچم جمهوری اسلامی دیده میشود …
+@withyashar
+</div>
+
+## withyashar — post 11419
+
+
+
+
+## withyashar — post 11418
+
+<div align="center">
+  <img src="telegram/content/withyashar_11418_1778963396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاورین شاهزاده (امیر اعتمادی و سعید قاسمینژاد) ، علی کریمی‌ رو به علت واکنش ‌به کنسرت و آهنگ شاهین نجفی آنفالو کردند @withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 23:03
 ---
 
