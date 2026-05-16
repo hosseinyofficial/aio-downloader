@@ -7,6 +7,541 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:39
+---
+
+## persian_trend_official — post 14253
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14253_1778954963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو از حملات ارتش اسرائیل به جنوب لبنان
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14252
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14252_1778954966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پارلمان عراق خواستار پیگیری بین‌المللی انتقال «محمد باقر السعدی» به آمریکا شد
+
+💢پارلمان عراق از وزارت خارجه این کشور خواست درباره ربوده‌شدن «محمد باقر السعدی» از ترکیه و انتقال او به آمریکا، اقدامات و پیگیری‌های بین‌المللی انجام دهد.
+
+بر اساس گزارش‌ها:
+
+▪️ نمایندگان عراقی این اقدام را نقض حاکمیت و قوانین بین‌المللی دانسته‌اند
+▪️ از بغداد خواسته شده موضوع را از مسیرهای دیپلماتیک و حقوقی دنبال کند
+▪️ جزئیات بیشتری درباره نحوه انتقال السعدی منتشر نشده است
+
+💢این درخواست پس از اعلام بازداشت السعدی توسط اف‌بی‌آی آمریکا مطرح شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14251
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14251_1778954966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢تمسخر دوباره جو بایدن توسط دونالد ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر کشور پاکستان امروز به تهران سفر کرده است
+
+🔹 سفر وزیر کشور پاکستان به تهران در چارچوب تلاش‌های میانجیگری میان امریکا و جمهوری اسلامی است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14249
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14249_1778954967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢آناتولی: دیدار باقری با فیدان در استانبول
+
+💢 به گزارش خبرگزاری آناتولی، منابع دیپلماتیک اعلام کردند که هاکان فیدان، وزیر امور خارجه ترکیه و علی باقری، معاون دبیر شورای عالی امنیت ملی ایران، روز شنبه در استانبول دیدار کردند.
+
+💢 جزئیات بیشتری در مورد این دیدار ارائه نشده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14248
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14248_1778954968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢عارف معاون اول رئیس‌جمهور:
+
+💢دیگر اجازهٔ عبور تجهیزات نظامی دشمن از تنگهٔ هرمز را نخواهیم داد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: اگر توافقی حاصل نشود، جمهوری اسلامی «روزگار بسیار بدی» خواهد داشت
+
+دونالد ترامپ در یک گفت‌وگوی تلفنی با شبکه خبری تلویزیونی ب اف ام فرانسه اظهار داشت که نمی‌داند آیا به‌زودی توافقی با جمهوری اسلامی حاصل خواهد شد یا نه.
+
+رییس‌جمهور ایالات متحده گفت: «هیچ ایده‌ای ندارم که آیا آن‌ها این کار را خواهند کرد یا نه. اگر این کار را نکنند، روزگار بسیار بدی خواهند داشت، روزگار بسیار بدی. بهتر است که یک توافق منعقد کنند.»
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹زمین‌لرزه‌ای به بزرگی ۴.۵ ریشتر دقایقی پیش گلوگاه در استان مازندران را لرزاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لایو امشب ساعت 22 آغاز میشه
+</div>
+
+## persian_trend_official — post 14244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل شنبه اعلام کرد که در آخر این هفته حدود ۱۰۰ موضع حزب‌الله را در جنوب لبنان مورد حمله قرار داده است.
+
+بر اساس اعلام ارتش اسرائیل، این اهداف شامل پست‌های مراقبت و دیده‌بانی، انبارهای تسلیحات و سایر زیرساخت‌هایی بوده که توسط این گروه برای پیشبرد حملات استفاده می‌شود.
+
+این حملات در سراسر جنوب لبنان انجام شده و منطقه صور را نیز دربر گرفته است.
+
+در همین حال، در ۲۴ ساعت گذشته، حزب‌الله چندین پهپاد و گلوله خمپاره به سمت نیروها در جنوب لبنان شلیک کرده است.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14243
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14243_1778954970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم تشییع جنازه عزالدین الحداد، فرمانده نظامی حماس که دیشب کشته شد، در نوار غزه انجام شد.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14242
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14242_1778954971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅پست جدید ترامپ در تروث سوشال:
+بازی نداریم! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسامی ٣٠ بازیکن دعوت‌شده به اردوی نهایی تیم ملی فوتبال در ترکیه 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمتا جوریه که یا پولت نمیرسه چیزی که میخوای رو بخری
+یا اگه هم برسه، دلت نمیاد اون همه پولو خرجش کنی...
+
+》Parsa《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498841
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498841_1778954972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
+
+در هفته آخر لیگ برتر امارات، البطائح مقابل شباب‌الاهلی به نتیجه تساوی 1-1 دست پیدا کرد تا با توجه به برد 1-0 الظفره مقابل الوحده به دسته پایین‌تر سقوط کند. تیم مجیدی با 21 امتیاز در رده 13 جدول 14 تیمی امارات قرار گرفت.
+الظفره با 22 امتیاز در رده 12 قرار گرفت و از سقوط گریخت؛ دباء نیز با 20 امتیاز همراه با البطائح سقوط کرد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498840
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498840_1778954972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با هوش مصنوعی بایدنِ خواب‌آلود، اوباما و پلوسی رو انداخته تو فاضلاب و نوشته دموکرات‌ها عاشق این مکان هستن. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498837
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498837_1778954973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از فرودگاه ایلات اسرائیل یک فروند هواپیمای باری ایل ۷۶ ۷ سوخت رسان آمریکایی و یک هواپیمای گشت دریایی P-8 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498836
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498836_1778954974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس کمیسیون امنیت‌ملی مجلس: فقط کشتی‌های طرف همکاری با ایران حق عبور از تنگه هرمز دارند 🔹ایران در چارچوب حق حاکمیت ملی و تضمین امنیت تجارت بین الملل، سازوکاری حرفه‌ای برای مدیریت ترافیک تنگه هرمز در مسیر تعیین شده تهیه کرده که به‌زودی رونمایی می‌شود. 🔹در…
+</div>
+
+## OfficialPersiaTwiter — post 498834
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498834_1778954976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: ملاقات دبیرکل فیفا با تاج در استانبول؛ اطمینان از حضور تیم ملی در جام جهانی 🔹یک منبع آگاه به خبرگزاری رویترز گفته است ماتتیاس گرافستروم دبیرکل فیفا، روز شنبه قرار است در استانبول با مقامات فدراسیون فوتبال ایران دیدار کند و در این نشست، او درباره حضور…
+</div>
+
+## OfficialPersiaTwiter — post 498833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غذای مورد علاقه گلشیفته مَکرونیه 》baby《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین‌لرزه‌ای به بزرگی ۴.۵ ریشتر دقایقی پیش گلوگاه در استان مازندران را لرزاند.
+
+محل وقوع: مرز استانهای مازندران و گلستان -حوالی گلوگاه
+تاریخ و زمان وقوع به وقت محلی: 1405/02/26 20:19:16
+طول جغرافیایی: 53.82
+عرض جغرافیایی: 36.78
+عمق زمین‌لرزه: 6 کیلومتر
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️دبیرکل فیفا و رئیس فدراسیون فوتبال ایران در استانبول با هم دیدار کردند
+
+دبیرکل فیفا و مهدی تاج، رئیس فدراسیون فوتبال ایران، امروز در استانبول با هم دیدار کردند.
+
+یک منبع آگاه به خبرگزاری رویترز گفته است که ماتیاس گرافستروم قرار بوده در این دیدار درباره حضور ایران در جام جهانی به مقام‌های جمهوری اسلامی ایران «اطمینان‌» بدهد.
+
+قرار است ایران هر سه بازی مرحله گروهی جام جهانی را در ایالات متحده برگزار کند، اما از زمان حمله آمریکا و اسرائیل به ایران در نهم اسفند حضور تیم ملی ایران در این رقابت‌ها که از کمتر از یک ماه دیگر برگزار می‌شود، با ابهام روبه‌رو شده است.
+
+پس از آن‌که مهدی تاج به دلیل ارتباطش با سپاه پاسداران انقلاب اسلامی از ورود به کانادا منع شد، ابهام درباره وضعیت ایران بیشتر شد. او برای شرکت در نشست فیفا که در ونکوور برگزار می‌شد، عازم این کشور شد اما ماموران اجازه ورود او به خاک کانادا را ندادند.
+
+جمهوری اسلامی ایران همزمان با حملات آمریکا و اسرائیل ابتدا اعلام کرده بود که تیم ملی ایران احتمالا در جام جهانی شرکت نمی‌کند اما سپس مقام‌های وزارت ورزش ایران حضور تیم را منوط به تصمیم شورای عالی امنیت ملی کردند.
+
+آمریکا و کانادا، که همراه با مکزیک میزبان مشترک جام جهانی هستند، سپاه پاسداران را یک «نهاد تروریستی» طبقه‌بندی و اعلام کرده‌اند افرادی را که با این نیرو ارتباط دارند، به کشورشان راه نخواهند داد.
+
+تیم ملی فوتبال ایران قرار است دو روز دیگرعازم اردوی آماده‌سازی در ترکیه شود.
+
+https://bbc.in/4nGtXEU
+@BBCPersian
+</div>
+
+## bbcpersian — post 281233
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281233_1778954977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از پنجاه کودک در شمال‌شرق نیجریه، در پی حمله به سه مدرسه در روز جمعه ۲۵ اردیبهشت، ربوده شده‌اند. گفته می‌شود بیشتر این کودکان بین دو تا پنج سال سن دارند و از مهدکودک‌ها به زور برده شده‌اند.
+
+والدین این کودکان در روستای «موسا» در ایالت بورنو با نگرانی و اضطراب فراوان در انتظار دریافت خبری از فرزندان خود هستند، در حالی که هیچ گروهی تاکنون مسئولیت این حملات را بر عهده نگرفته است. هم‌زمان گزارش‌هایی نیز از فرار برخی ساکنان منطقه منتشر شده است.
+
+به گفته شاهدان عینی، مهاجمان هنگام فرار با موتورهای خود، از کودکان به‌عنوان سپر انسانی استفاده کردند؛ اقدامی که باعث شد نیروهای امنیتی نتوانند به سوی آن‌ها تیراندازی کنند.
+📷Getty
+@BBCPersian
+</div>
+
+## bbcpersian — post 281232
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گفت‌وگوی پوتین و رئیس امارات درباره جنگ ایران
+
+ولادیمیر پوتین، رئیس‌جمهور روسیه، امروز (شنبه) با محمد بن زاید آل نهیان، رئیس امارات متحده عربی، درباره جنگ ایران گفت‌‌و‌گو کرد.
+
+بنا به ییانیه کرملین «دو طرف بر اهمیت ادامه روند سیاسی و دیپلماتیک با هدف دستیابی به توافق‌های صلح مبتنی بر مصالحه تأکید کردند.»
+
+آقای پوتین همچنین از حمایت امارات متحده عربی در زمینه مسائل بشردوستانه مرتبط با جنگ اوکراین قدردانی کرد.
+
+رئیس‌جمهور روسیه قرار است روز سه‌شنبه آینده در سفری دو روزه به چین برود.
+
+از زمان آغاز جنگ آمریکا و اسرائیل با ایران و حملات تلافی‌جویانه ایران در منطقه، تنش بین ایران و امارات افزایش پیدا کرده است.
+
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، روز پنجشنبه امارات متحده عربی را «شریک فعال» آمریکا و اسرائیل در حمله به ایران توصیف و این کشور را متهم کرد که مستقیما در جنگ آمریکا و اسرائیل با ایران «دخیل» بوده است.
+
+امارات در واکنش، ایران را به «تلاش برای توجیه» حملاتش به آن کشور متهم کرد.
+
+https://bbc.in/4ubilfj
+@BBCPersian
+</div>
+
+## bbcpersian — post 281231
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281231_1778954978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روزنامه نیویورک تایمز به نقل از دو مقام در خاورمیانه بدون ذکر نام، گزارش داده است که آمریکا و اسرائیل در حال آماده شدن برای احتمال از سرگیری حملات علیه ایران هستند؛ حملاتی که به طور بالقوه حتی در هفته پیش رو می‌تواند شروع شود.
+
+به گفته این دو مقام که به شرط فاش نشدن نامشان با نیویورک تایمز صحبت کرده‌اند، تدارکات آمریکا و اسرائیل، گسترده ترین اقدامات آنها برای آمادگی جنگی از زمان برقراری آتش‌بس است.
+
+وزیر دفاع آمریکا هم این هفته در کنگره به قانون‌گذاران گفته بود که پنتاگون برای سناریوهای مختلف برنامه‌هایی در دست دارد؛ هم برای جابه‌جایی امکانات نظامی و تشدید جنگ در صورت لزوم و هم برای کاهش و خارج کردن نیروها از منطقه.
+
+نیویورک تایمز به نقل از مقام‌های آمریکایی گزارش کرده است که اگر دونالد ترامپ تصمیم به حمله بگیرد، یک گزینه بمباران شدیدتر مراکز نظامی و زیرساخت‌های ایران است و گزینه دیگر عملیات زمینی برای خارج کردن ذخایر اورانیوم غنی‌شده ایران که تصور می‌شود پس از بمباران تاسیسات هسته‌ای ایران در جنگ دوازده روزه زیر آوار مدفون شده‌ است.
+
+📸U.S. Navy via Getty Images
+
+https://bbc.in/3RKVVDe
+@BBCPersian
+</div>
+
+## bbcpersian — post 281230
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281230" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست رادیویی جام جهان‌نما شنبه ۲۶ اردیبهشت ۱۴۰۵
+در پی تحولات اخیر ایران و قطع و اختلال در اینترنت که امکان دسترسی مخاطبان در ایران به رسانه‌ها را با مشکل مواجه کرده است، بی‌بی‌سی فارسی از ۱۵ بهمن پخش رادیویی برنامه‌های خود را دوباره آغاز کرده است.
+
+برنامه‌ جام جهان‌نما از این پس همه روزه از ساعت ۱۶:۳۰ گرینویچ (۲۰:۰۰ ایران) روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز پخش می‌شود.
+
+تکرار این برنامه از ساعت ۱۸:۰۰ گرینویچ (۲۱:۳۰ ایران) روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۹۳۵ کیلوهرتز پخش می‌شود.
+@BBCPersian
+</div>
+
+## networkti — post 358
+
+<div align="center">
+  <a href="https://t.me/networkti/358" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه جدید TheFeed (v0.18.10) 🚀
+
+🔸توی این نسخه چیز مهمی تغییر نکرده! فقط از اونجایی که گیتهاب اکانتم رو ساسپند کرد و هنوز اکانت باز نشده، پروژه TheFeed رو به گیتلب منتقل کردم و برنامه رو هم تغییر دادم که لینک ها و این چیزهای که توی برنامه بود به گیتلب هم اشاره کنه. البته قابلیت دانلود آخرین نسخه و نوتیف نسخه جدید هنوز به گیتلب وصل نشده و کار‌نمیکنن (گیتلب فیلتره و کمکی نمیکنه اضافه کردنش 🫠).
+البته توی تنظیمات یک دکمه هست به اسم "بررسی" که وقتی بزنیدش اخرین شماره نسخه رو از سرور میپرسه و نشون میده، این رو سمت سرور تغییر دارم که اگر‌ گیتهاب کار نکرد اخرین شماره نسخه رو از گیتلب بگیره و سمت کلایمت هم یک باگ داشت که رفع شد.
+
+⚠️ این نسخه خیلی مهم نیست و میتونید آپدیت نکنید
+
+آدرس سورس کد پروژه روی گیتلب:
+
+https://gitlab.com/sartoopjj/thefeed
+
+یک نفر لطف کرده بود و فیچر های دسترسی پذیری اضافه کرده بود و پول ریکوئست فرستاده بود، لطفا اگر این پیام رو میبینی مرج ریکویست بفرست روی گیتلب🥲❤️
+
+کانال اصلیم:
+@networkti
+
+کانال کانفیگ برای برنامه:
+@thefeedconfig
+</div>
+
+## Pesari_Ke_Konie — post 44950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شماهم جام جهانی کاملا به کیرتونه ؟ کی انقدر بی تفاوت شدیم نسبت به همچی :)))
+</div>
+
+## Pesari_Ke_Konie — post 44949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت جوریه که پورن دیدن، گرون تر از جنده کردنه. @Pesari_Ke_Konie
+</div>
+
+## Pesari_Ke_Konie — post 44948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت جوریه که پورن دیدن، گرون تر از جنده کردنه.
+
+@Pesari_Ke_Konie
+</div>
+
+## Tans_Footbali — post 236350
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236350_1778954979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای پروفایل 
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا در گفت‌وگوی تلفنی با شبکه فرانسوی «بی‌اف‌ام‌تی‌وی» آینده مذاکرات با ایران را نامشخص توصیف کرد.
+
+او هشدار داد که در صورت شکست مذاکرات، ایران با پیامدهای سنگینی روبه‌رو خواهد شد.
+
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار سی‌ان‌ان، کیتلان کالینز، می‌گوید: «ترامپ ظاهراً نمی‌خوابد.
+
+«یک منبع یک بار به من گفت هیچوقت کسی دوست ندارد در یک سفر طولانی مثلاً به آسیا در هواپیمای رئیس جمهور باشد… ترامپ همیشه بیدار است و حرف می‌زند، و اگر کارکنانش خواب باشند، می‌فرستد بیدارشان کنند چون می‌خواهد با آنها صحبت کند.»
+
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236347
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236347_1778954980.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ژابی آلونسو با قراردادی ۴ساله بعنوان سرمربی چلسی انتخاب شد
+
+⚫️@FootyRadar
+</div>
+
+## hamclasixii — post 75393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میری اینستاگرام میبینی ۹۵ درصد پیج های فعال پیج‌های پزشک هاست. همشون پرو خریدن پست میذارن واسه همدیگه. واسه همدیگه کامنت میذارن و همدیگه رو حمایت میکنن. در صورتی که مردم عادی نیستن. رسما یک سیرک بلاهت و بدبختیه.
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11411
+
+<div align="center">
+  <img src="telegram/content/withyashar_11411_1778954980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو سخت ترین شرایط بهمون روحیه دادی، تو جلسه ی بچه های تکنولوژی با شاهزاده به یادت بودیم!❤️
+</div>
+
+## withyashar — post 11410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
+@withyashar
+</div>
+
+## withyashar — post 11409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
+
+## withyashar — post 11408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
+
+## withyashar — post 11407
+
+<div align="center">
+  <img src="telegram/content/withyashar_11407_1778954981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناوگروه آبراهام لینکلن با سه اسکورت با سرعت به سمت دریای عمان می‌ روند ، ۲۶ اردیبهشت. (مکان 260 کیلومتری چابهار)
+@withyashar
+</div>
+
+## withyashar — post 11406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 13 اسرائیل: هم اکنون ارزیابی‌ها در اسرائیل بر این است که جنگ با ایران در روز های آینده از سر گرفته خواهد شد.
+@withyashar
+</div>
+
+## withyashar — post 11405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگه به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما رو پیدا خواهیم کرد و خواهیم کشت.
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 20:45
 ---
 
