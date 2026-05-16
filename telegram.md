@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:41
+---
+
+## Tans_Footbali — post 236354
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236354_1778969501.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت اکانت جمهوری اسلامی به عبری :
+
+
+پیام روشن بود لفاظی نکنید...
+המסר היה ברור: אל תהיו רטוריים...
+
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236353
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236353_1778969501.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت کاخ سفید با انتشار عکسی از ترامپ تو اتاق جنگ نوشت:
+
+شوخی‌ای در کار نیست.
+
++متن داخل تصویر (نقل قول ترامپ):
+اگر به آمریکایی‌ها ضربه بزنید یا برنامه‌ای برای این کار داشته باشید، ما شمارو پیدا میکنیم و میکُشیم
+
+
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236352
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236352_1778969502.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎉  بونوس ویژه ثبت‌نام – ۵۰۰٬۰۰۰ تومان رایگان
+
+
+💥 با ثبت‌نام در سایت، ۵۰۰٬۰۰۰ تومان بونوس رایگان دریافت کنید و شانس خود را امتحان کنید.
+
+
+🔥 چگونه کار می‌کند؟
+
+
+⬅️ ثبت‌نام کنید 
+
+⬅️بونوس ۵۰۰٬۰۰۰ تومانی دریافت کنید 
+
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+
+
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+
+⚽️  پوشش کامل مسابقات ورزشی 
+
+📊  پیش‌بینی با بهترین ضرایب 
+
+⚡️  تجربه سریع و حرفه‌ای
+
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+A24
+
+😀 کانال تلگرام: 
+
+🔴 @winro_io  
+
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+🔴 Winro.io
+
+سایت اصلی در روزهای آینده بازگشایی خواهد شد s
+✅
+</div>
+
+## withyashar — post 11431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران به عبری ی توییت زد ک پیام روشن بود لفاظی نکنید... המסר היה ברור: אל תהיו רטוריים... یعنی کار ایران بوده؟ مث ک کلاهک اتمی اسراییل اونجا نگهداری میشده
+</div>
+
+## withyashar — post 11430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران به عبری ی توییت زد ک
+
+پیام روشن بود لفاظی نکنید...
+המסר היה ברור: אל תהיו רטוריים...
+یعنی کار ایران بوده؟
+مث ک کلاهک اتمی اسراییل اونجا نگهداری میشده
+</div>
+
+## withyashar — post 11429
+
+<div align="center">
+  <a href="telegram/content/withyashar_11429_1778969503.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناو هواپیمابر جرالد فورد به خانه بازگشت
+@withyashar
+</div>
+
+## withyashar — post 11428
+
+<div align="center">
+  <a href="telegram/content/withyashar_11428_1778969505.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار سنگین در بیت شمس و دیده شدن ابر قارچی گزارش شده که در کارخانه شرکت تومر رخ داد. این شرکت موتورهای موشک سنگین و سبک، از جمله موتورهای پیشران موشک‌های ارو ۲ و ارو ۳، موتور موشک هدف سیلور انکر، موتورهای ماهواره هورایزن و موتورهای موشک باراک ۸ و باراک ام‌ایکس را توسعه و تولید می‌کند.
+@withyashar
+</div>
+
+## withyashar — post 11427
+
+
+
+
+---
 📅 بروزرسانی: 1405/02/27 00:56
 ---
 
