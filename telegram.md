@@ -7,6 +7,202 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 15:36
+---
+
+## persian_trend_official — post 14236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://castbox.fm/vi/945846191
+
+لطفا چک کنید ببنید دسترسی دارید ؟
+</div>
+
+## OfficialPersiaTwiter — post 498785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به دو ساختمان مسکونی در شهر صور لبنان 🔹دقایقی پس از اعلام تمدید آتش بس، جنگنده‌های اسرائیل دو ساختمان مسکونی در شهر صور در جنوب لبنان را بمباران کردند. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: اروپایی‌ها برای عبور از تنگه هرمز، وارد مذاکره با سپاه شده‌اند
+
+🔹صداوسیما اعلام کرد: پس از گذشت کشتی‌هایی از کشورهای شرق آسیا و به‌ویژه چین، ژاپن و پاکستان امروز خبر آمد که اروپایی‌ها هم وارد مذاکره با نیروی دریایی سپاه شده‌اند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر کشور پاکستان در سفری از پیش اعلام نشده وارد تهران شد. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرط جدید دولت برای متقاضیان یورو با کارت ملی 🔹مرکز اطلاعات مالی وزارت اقتصاد مشخص کردن مشخصات دریافت کننده، هدف دریافت ارز، محل و نحوه هزینه‌کرد وجوه نقدی درخواستی برای متقاضیان دریافت ارز با کارت ملی را اجباری کرد. 🔹بانک مرکزی اخیرا اعلام کرده به همه متقاضیان…
+</div>
+
+## OfficialPersiaTwiter — post 498781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498780
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498780_1778933205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گاردین: طرح فرانسه و بریتانیا در مورد تنگه هرمز، تحویل عمان داده شد 🔹گاردین نوشت: عمان پس از آنکه ایران اعلام کرد درباره مدیریت آینده تنگه هرمز با مسقط هماهنگی می‌کند، درگیر کشمکش‌های ژئوپولیتیکی شده است؛ از جمله درباره طرح‌های تهران برای دریافت هزینه از…
+</div>
+
+## OfficialPersiaTwiter — post 498779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر کشور پاکستان در سفری از پیش اعلام نشده وارد تهران شد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498778
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498778_1778933205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصاف دوستانه تیم ملی ایران برابر کامرون 🔹مدیر تیم ملی فوتبال ایران اعلام کرد احتمالا این تیم پیش از جام‌جهانی در دیدری‌ دوستانه به مصاف کامرون خواهد رفت. 🔹فهرست تیم ملی برای حضور در جام جهانی، ۱۱ خرداد اعلام می‌شود. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرح تشدید برخورد با تخلفات پلاک توسط پلیس/هر پلاک مخدوش ۷۰۰ هزار تومان
+
+رئیس پلیس راهور تهران:
+
+🔹طرح برخورد با پلاک‌های مخدوش و ناخوانای وسایل نقلیه به شکل ضربتی آغاز شده و همچنان در دستور کار پلیس قرارخواهد داشت.
+
+🔹دستکاری در پلاک به انحای مختلف جرم محسوب میگردد و کسانی که پلاک خود را میپوشانند، مشمول جریمه ۷۰۰ هزار تومانی نیز می‌شوند.
+
+🔹ماموران پلیس راهور به شکل محسوس و نامحسوس در اطراف دوربین‌ها و معابر ورودی به محدوده طرح ترافیک مستقر شدند، وسیله نقلیه متخلف را نیز توقیف و راننده متخلف را به دادسرای راهور معرفی می‌کنند.
+
+🔹تمامی وسایل نقلیه موتوری اعم از موتورسیکلت، خودروی سواری، کامیون، اتوبوس و … مشمول این قانون می‌شوند و در صورت تخلف، «مقام قضایی» به تخلف آنان رسیدگی خواهد کرد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حماس و ارتش اسرائیل تأیید کرده‌اند که عزالدین حداد، فرمانده گردان‌های قسام، شاخه نظامی این گروه، شامگاه جمعه در حمله‌ اسرائیل در شهر غزه کشته شده است.
+
+اسرائیل او را یکی از طراحان حملات هفتم اکتبر ۲۰۲۳ خوانده است.
+
+مراسم تشییع عزالدین حداد امروز در شهر غزه برگزار شد.
+
+اعضای خانواده‌ آقای حداد هم در حمله هوایی شبانه اسرائیل کشته شدند.
+
+سازمان‌های امدادی در غزه اعلام کردند که در این حملات دست‌کم هفت نفر کشته و ده‌ها نفر هم زخمی شده‌اند.
+
+اگرچه از ماه اکتبر آتش‌بس در این منطقه برقرار بوده، اما دولت اسرائیل می‌گوید همچنان اختیار هدف قرار دادن اعضای حماس را دارد.
+📷 Getty Images
+</div>
+
+## Lichargoo — post 24888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه جنتلمن واقعی، با پرنسس اش تو تلگرام چت میکنه
+
+(دخترا در حال متقاعد کردن دوست پسراشون واسه اینکه کانفیگ بخره)
+</div>
+
+## Tans_Footbali — post 236337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر کشور پاکستان به تهران سفر کرد
+
+منابع آگاه اعلام کردند که سید محسن نقوی وزیر کشور پاکستان برای دیدار با مسوولان جمهوری اسلامی ایران ساعاتی قبل به تهران سفر کرده است.
+
+به گزارش روز شنبه خبرنگار ایرنا، منبع دیپلماتیک در اسلام‌آباد به خبرنگار ایرنا گفت که نقوی در این سفر که از پیش اعلام نشده بود، قرار است با برخی از مقامات  ایرانی از جمله وزیرکشور دیدار کند.
+
+وزیر کشور پاکستان ۲۶ فروردین امسال نیز فرمانده ارتش کشورش در سفر ۳ روزه اش به تهران را همراهی کرده بود.
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236336
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236336_1778933206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استوری مشاور راهبردی رئیس مجلس
+
+💛@Tans_Footbali
+</div>
+
+## hamclasixii — post 75388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوپر اپلیکیشن «بله» حدود یساعته از کار افتاده و کار نمیکنه؛ کانفیگ ندارید؟
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده.
+@withyashar
+</div>
+
+## withyashar — post 11389
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند.
+@withyashar
+</div>
+
+## withyashar — post 11388
+
+<div align="center">
+  <a href="telegram/content/withyashar_11388_1778933207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نظر کلی رسانه ها اینه که ۷۲ ساعت طلایی پیشه رو داریم 😬
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 14:36
 ---
 
