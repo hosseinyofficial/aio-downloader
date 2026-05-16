@@ -7,6 +7,158 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 00:56
+---
+
+## persian_trend_official — post 14279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار بزرگ در بیت‌شمش 💢رسانه‌های عبری از وقوع انفجاری بسیار بزرگ در بیت‌شمش در اسرائیل خبر می‌دهند. 💢این رسانه‌ها با بیان اینکه ارتش مانع از ورود خودروهای امدادی به محل حادثه می‌شود، تصریح کردند این انفجار احتمالاً در تأسیساتی حساس رخ داده است. 🫆:Tony…
+</div>
+
+## persian_trend_official — post 14278
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14278_1778966780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های اسرائیلی از انفجار در کارخانه صنایع موشکی «تومر» خبر دادند 💢رسانه‌های اسرائیلی گزارش دادند انفجاری در کارخانه شرکت «تومر» رخ داده است؛ شرکتی که در حوزه توسعه و تولید موتورهای موشکی و سامانه‌های پیشران فعالیت می‌کند. ▪️بر اساس گزارش‌ها، این شرکت…
+</div>
+
+## persian_trend_official — post 14277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار بزرگ در بیت‌شمش 💢رسانه‌های عبری از وقوع انفجاری بسیار بزرگ در بیت‌شمش در اسرائیل خبر می‌دهند. 💢این رسانه‌ها با بیان اینکه ارتش مانع از ورود خودروهای امدادی به محل حادثه می‌شود، تصریح کردند این انفجار احتمالاً در تأسیساتی حساس رخ داده است. 🫆:Tony…
+</div>
+
+## persian_trend_official — post 14276
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14276_1778966781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار بزرگ در بیت‌شمش 💢رسانه‌های عبری از وقوع انفجاری بسیار بزرگ در بیت‌شمش در اسرائیل خبر می‌دهند. 💢این رسانه‌ها با بیان اینکه ارتش مانع از ورود خودروهای امدادی به محل حادثه می‌شود، تصریح کردند این انفجار احتمالاً در تأسیساتی حساس رخ داده است. 🫆:Tony…
+</div>
+
+## OfficialPersiaTwiter — post 498870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفتم دوش بگیرم، نگو کانفیگم روشن مونده و یوتیوب باز بوده رو گوشی و حجمش تموم شده.
+فکر میکنم بعد از امیرکبیر، تا الان کسی اینجوری از حموم رفتن ضرر نکرده بوده.
+
+》Hastiovski《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498869
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498869_1778966782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مگه اسکلم از بیرون پیتزا مخلوط بخرم ۱ میلیون تومن؟ خودم موادشو میخرم تو خونه درست میکنم بشه ۲ میلیون و ۳۰۰ هزار تومن. تازه با نوشابه. • دودوک • @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498868
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498868_1778966782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالبه بدونید النصر یک سال و دو ماهه که توی تمام بازی هاش حتی اونایی که باخته، گل زده و آخرین بازی که موفق به گلزنی نشده برمیگرده به 3 مارچ 2025 مقابل استقلال تهران :))) 》فوتبالی《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: ترامپ بدون پیشرفت در موضوع ایران از چین بازگشت و نسبت به مذاکرات متوقف شده، بی‌صبرتر شده است 🔹در حالی که ترامپ هنوز می‌گوید دیپلماسی را ترجیح می‌دهد، اکنون در حال بررسی این است که آیا حملات نظامی اضافی برای فشار آوردن به تهران لازم است یا خیر. …
+</div>
+
+## OfficialPersiaTwiter — post 498866
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498866_1778966783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار فاکس نیوز: ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار بزرگ در بیت‌شمش رسانه‌های عبری از وقوع انفجاری بسیار بزرگ در بیت‌شمش واقع در غرب اراضی اشغالی خبر می‌دهند. این رسانه‌ها با بیان اینکه ارتش مانع از ورود خودروهای امدادی به محل حادثه می‌شود، تصریح کردند این انفجار احتمالاً در تأسیساتی حساس رخ داده است.…
+</div>
+
+## Lichargoo — post 24892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراحل وصل شدن به اینترنت ازاد از غنی کردن اورانیوم و تولید شیشه هم سخت‌تر و پیچیده‌تر شده.
+</div>
+
+## Bad_chaneli — post 39506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیابان با جنده‌‌ها وکسکشا
+
+تلگرام با ما
+</div>
+
+## Bad_chaneli — post 39505
+
+<div align="center">
+  <a href="telegram/content/Bad_chaneli_39505_1778966784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## withyashar — post 11426
+
+<div align="center">
+  <a href="telegram/content/withyashar_11426_1778966785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب بیداریم !
+@withyashar
+</div>
+
+## withyashar — post 11424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ جیمی دیمون، مدیرعامل جی‌پی‌مورگان چیس، درباره ایران:
+
+‏آنها ۴۷ سال است که تجاوز، قتل و کشتار می‌کنند. دنیای غرب اجازه جنگ‌های نیابتی را داد.
+‏ما درس عبرت گرفتیم - باید سال‌ها پیش به سراغ سر مار می‌رفتیم.
+@withyashar
+</div>
+
+## withyashar — post 11423
+
+<div align="center">
+  <img src="telegram/content/withyashar_11423_1778966785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد امین صابرکار، دانش‌آموز ۱۷ ساله بسیجی بوشهری،‌ حین انجام تمرینات تیراندازی اشتباها با آتش خودی(فرندلی فایر😬) کشته شد
+@withyashar
+</div>
+
+## withyashar — post 11422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar فرهنگ ما همیشه غالب میشه
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 23:59
 ---
 
