@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 20:45
+---
+
+## persian_trend_official — post 14240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
+با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
+این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
+🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
+https://t.me/boost/persian_trend_official
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گرفتار شدن ۲۵ گردشگر در دره خوردلان الموت/قزوین «درگاهی»مدیرعامل هلال‌‌احمر استان قزوین: 🔹️ ساعت ۸:۲۵ صبح امروز، ۲۶ اردیبهشت، گزارش مفقودی و گرفتار شدن یک گروه گردشگری ۲۵ نفره در دره خوردلان در الموت شرقی به هلال‌احمر اعلام و ۲ تیم عملیاتی هلال‌احمر بلافاصله…
+</div>
+
+## OfficialPersiaTwiter — post 498830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای سی‌ان‌ان، به نقل از منابع آگاه: در دولت ترامپ نظرات متفاوتی در مورد چگونگی برخورد با ایران وجود دارد. دولت ترامپ و مقامات پنتاگون بر حملات هدفمند اصرار دارند، در حالی که دیگران از دیپلماسی حمایت می‌کنند 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابام مرتب کوه می رفت. گاهی ما رو هم می برد، برادرم ۸سال از من بزرگتره. یه بار که دربند رفتیم پرسیدم این مجسمه کیه؟ برادرم گفت بابا! برای من اینطوری بود که بایدم باشه! سال اول دانشگاه قرار شد بریم کوه، گفتن همه کجا جمع بشیم؟ من گفتم دم مجسمه بابام! 》sharas_law《…
+</div>
+
+## OfficialPersiaTwiter — post 498828
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498828_1778951748.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از فرودگاه ایلات اسرائیل
+
+یک فروند هواپیمای باری ایل ۷۶
+۷ سوخت رسان آمریکایی
+و یک هواپیمای گشت دریایی P-8
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498827
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498827_1778951749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منچسترسیتی قهرمان جام حذفی انگلیس شد
+
+تیم فوتبال منچسترسیتی با برتری یک بر صفر برابر چلسی، برای هشتمین‌بار قهرمان جام حذفی انگلیس شد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تغییر سیاست گوگل؛ تا شماره‌موبایل را ثبت نکنید خبری از فضای ابری ۱۵ گیگابایتی نیست
+
+گوگل سال‌ها است که به کاربرانش ۱۵ گیگابایت فضای ابری رایگان می‌دهد و این فضا، میان سرویس‌های جیمیل، درایو و فوتوز مشترک است؛ اما شرایط قرار است تغییر کند. این شرکت سیاست فضای ابری خود را تغییر داده و شرط جدیدی برای دریافت این حجم از فضا وضع کرده است.
+
+کاربران در حال حاضر هنگام ایجاد حساب گوگل با پیامی جدید مواجه می‌شوند که در آن گوگل اعلام می‌کند که حساب تنها شامل ۵ گیگابایت فضای ابری است. برای دریافت ۱۵ گیگابایت، کاربر باید شماره‌تلفن خود را وارد کند. این کار برای اطمینان از اینکه هر شخص تنها یک بار از این مزایا بهره‌مند می‌شود، الزامی شده است. /زومیت
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای سی‌ان‌ان، به نقل از منابع آگاه:
+
+در دولت ترامپ نظرات متفاوتی در مورد چگونگی برخورد با ایران وجود دارد.
+
+دولت ترامپ و مقامات پنتاگون بر حملات هدفمند اصرار دارند، در حالی که دیگران از دیپلماسی حمایت می‌کنند
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498824
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498824_1778951749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهناز نازی درگذشت
+
+🔹بهناز نازی بازیگر سینما، تئاتر و تلویزیون که با سرطان مبارزه می‌کرد، درگذشت.
+
+🔹بهرام بدخشانی، همسر این بازیگر با اعلام این خبر به ایسنا گفت که بهناز نازی، عصر امروز، شنبه ۲۶ اردیبهشت ماه از دنیا رفت.
+
+🔹این بازیگر در چند روز اخیر به دلیل وخامت حالش در بخش مراقبت‌های ویژه بستری بود و پزشکان برای سهولت در درمان، او را به خواب مصنوعی برده بودند.
+به گفته بدخشانی، مراسم خاکسپاری او متعاقبا اعلام می‌شود.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار سی‌ان‌ان، کیتلان کالینز، می‌گوید:
+
+ترامپ ظاهراً نمی‌خوابد.
+«یک منبع یک بار به من گفت در یک سفر طولانی مثلاً به آسیا در هواپیمای رئیس جمهور، ترامپ همیشه بیدار است و حرف می‌زند، و اگر کارکنانش خواب باشند، می‌فرستد بیدارشان کنند چون می‌خواهد با آنها صحبت کند.»
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498822
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498822_1778951750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقوع گردباد در محدوده مسکن ملی اردبیل
+
+》طاها صبائی《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایرنا: وزیر کشور پاکستان در یک سفر از پیش اعلام نشده در تهران است خبرگزاری رسمی ایرنا گزارش داده است که وزیر کشور پاکستان «در یک سفر از پیش اعلام نشده» در تهران است. ایرنا از قول منابع خود خبر داده است که محسن نقوی ساعاتی پیش وارد تهران شده و قرار است با…
+</div>
+
+## bbcpersian — post 281228
+
+<div align="center">
+  <a href="telegram/content/bbcpersian_281228_1778951751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ویدیوی منتشر شده از پیست اسکی توچال نشان می‌دهد طوفان شدیدی این منطقه را در می‌نوردد.
+
+سازمان هواشناسی ایران برای استان تهران ناپایداری شدید، صاعقه، تگرگ، سقوط سنگ و رانش زمین به ویژه در مناطق کوهستانی را پیش‌بینی کرده است.
+
+https://bbc.in/49FCHFl
+
+@BBCPersian
+</div>
+
+## bbcpersian — post 281227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پس از تهدید اسرائیل به شکایت، نیویورک تایمز از روزنامه‌نگار خود دفاع کرد
+
+✍️رافی برگ، بی‌بی‌سی
+
+نیویورک تایمز گفته است که اقدام حقوقی علیه این روزنامه به اتهام افترا که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تهدید به انجام آن کرده، بی‌اساس است.
+
+این نزاع بر سر مقاله‌ای در نیویورک تایمز است که در آن گفته شده است «سرویس‌های امنیتی اسرائیل به بازداشت‌شدگان فلسطینی تجاوز جنسی کرده‌اند.»
+
+این روزنامه پس از آن واکنش نشان داد که بنیامین نتانیاهو و وزیر امور خارجه‌اش بیانیه‌ای صادر کردند و گفتند که دستور «آغاز یک دعوی افترا» را داده‌اند.
+
+https://bbc.in/4nxcluV
+@BBCPersian
+</div>
+
+## Lichargoo — post 24890
+
+<div align="center">
+  <img src="telegram/content/Lichargoo_24890_1778951752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂😂
+
+
+@Lichargoo
+</div>
+
+## Tans_Footbali — post 236346
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236346_1778951753.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همتی رئیس بانک مرکزی: با قدرت، شتاب تورم را کنترل خواهیم کرد
+
+
+💛@Tans_Footbali
+</div>
+
+## withyashar — post 11404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در گفت‌وگوی تلفنی با شبکه فرانسوی «بی‌اف‌ام‌تی‌وی»:
+
+آینده مذاکرات نامشخص است اما اگر توافقی حاصل نشود ایران روزهای بسیار سختی در پیش خواهد داشت
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 19:40
 ---
 
