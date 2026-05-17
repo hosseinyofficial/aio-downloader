@@ -7,6 +7,340 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 20:29
+---
+
+## persian_trend_official — post 14344
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14344_1779037168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای ساعدی نیا
+قلب میلیون ها ایرانی همراه شماست.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14343
+
+
+
+
+## persian_trend_official — post 14341
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14341_1779037168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢در آخرین تصاویر ماهواره ای ناو هواپیمابر آبراهام لینکلن در فاصله ۲۴۵ کیلومتری از ساحل ایران مستقر شده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498970
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498970_1779037169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای تکراری ترامپ: برای ایران، زمان در حال گذر است و بهتر است سریع، خیلی سریع حرکت کنند، وگرنه چیزی از آنها باقی نخواهد ماند. وقت فوق‌العاده حیاتی است
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سقوط دو کارگر در مخلوط‌کن کارخانه قارچ در مریوان
+
+مدیر مرکز اورژانس دانشگاه علوم پزشکی کردستان:
+
+در این حادثه دو مرد ۲۶ و ۵۲ ساله به دنبال سقوط در دستگاه مخلوط‌کن دچار تروما و شکستگی‌های متعدد شدند.
+
+نیروهای اورژانس پس از ارزیابی اولیه، اقدامات درمانی پیش‌بیمارستانی از جمله تثبیت وضعیت حیاتی، کنترل آسیب‌ها و بی‌حرکت‌سازی اندام‌های آسیب‌دیده را در محل انجام دادند./ مهر
+
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علی پروین در بیمارستان بستری شد
+
+🔹پروین چندی پیش هم به دلیل مشابه در بیمارستان بستری شد اما پیگیری‌ها نشان می‌دهد که خوشبختانه شرایط جسمانی او پایدار است و مشکل خاصی وجود ندارد.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 معاون وزیر کشور: بخشی از اختیارات تخصیص ارز به استانداران واگذار می‌شود
+
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498966
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498966_1779037170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیر نویس شبکه خبر هشدار درباره عملیات غیرموجه علیه کشورهای منطقه و انتساب آن به ایران 🔹️یک مقام آگاه نظامی: ایران همه کشورهای منطقه را از افتادن در این دام رژیم صهیونیستی برحذر می‌دارد. • OPT • @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498965
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498965_1779037171.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتگوی تلفنی وزیر خارجه امارات با گروسی درباره جزئیات حمله پهپادی به امارات عبدالله بن زاید آل نهیان، وزیر خارجه امارات متحده عربی پس از حمله پهپادی در نزدیکی نیروگاه هسته‌ای این کشور با رافائل گروسی، رئیس آژانس بین‌المللی انرژی اتمی تلفنی گفتگو کرد. وزیر…
+</div>
+
+## OfficialPersiaTwiter — post 498964
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498964_1779037172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکبر عبدی از بخش مراقبت‌های ویژه خارج شد دختر اکبر عبدی از بهبود وضعیت عمومی این بازیگر خبر داد و اعلام کرد که او از بخش مراقبت‌های ویژه (ICU) ترخیص شده است. به گفته او، احتمال دارد اکبر عبدی تا یکی دو روز آینده از بیمارستان مرخص شود. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498963
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498963_1779037173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسرا میتونن اینجوری نگاهتون کنن و فکر کنن روغن ماشین چقدر گرون شده
+
+• iman •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گراهام: پیروزی بر ایران حتی ارزش این را دارد که منصب سیاسی خودم را هم از دست بدهم!
+
+
+
+مجری:
+▫️۷۰ درصد مردم آمریکا در یک نظرسنجی جدید گفته‌اند که از عملکرد اقتصادی ترامپ ناراضی هستند. موضوعی که همیشه مسئله اول برای رای‌دهندگان است. اگر نتیجه این جنگ ایرانِ غیرهسته‌ای باشد، آیا ارزشش را دارد که انتخابات میان‌دوره‌ای را از دست بدهید؟
+
+لیندسی گراهام:
+▫️ارزشش را دارد که (حتی) منصب خودم را هم از دست بدهم. اگر لازم باشد که شغلم را از دست بدهم، ولی در عوض مطمئن شویم که ایران هیچ وقت به سلاح هسته‌ای نمیرسد، این کار را انجام می‌دهم.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏قبلا دم گاو برای خودش شخصیتی داشت، الان شده چند گیگ اینترنت و چند دقیقه ریلز دیدن تو اینستا
+
+• Arman •
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امارات «حمله پهپادی» به نزدیکی نیروگاه هسته‌ایش را «تروریستی» خواند
+
+🔻امارات متحده عربی حمله پهپادی به نزدیکی نیروگاه هسته‌ای براکه را «یک اقدام تروریستی بی‌دلیل» خواند که باعث تشدید تنش در منطقه می‌شود.
+
+وزارت خارجه امارات متحده در بیانیه‌ای «به شدیدترین لحن» این حمله را محکوم کرد و «حق دیپلماتیک و نظامی خود را برای پاسخ به هرگونه تهدید، ادعا یا دشمنی» را محفوظ دانست.
+
+در بیانیه وزارت خارجه امارات به منشا این حمله اشاره‌ای نشده اما آمده است که یک ژنراتور برق، خارج از محدوده داخلی نیروگاه هسته‌ای براکه در منطقه ظفره، هدف پهپادی قرار گرفت که از مرز غربی وارد امارات شده بود.
+
+وزارت خارجه امارات این حمله را «تشدید خطرناک تنش‌ها،‌ اقدام تجاوزکارانه غیرقابل و تهدید مستقیم برای امنیت» خود و نقض آشکار قوانین بین‌المللی خواند.
+
+تنش لفظی ایران و امارات اخیرا شدت گرفته است.
+
+امارات جمعه گفت ایران در طول جنگ با آمریکا و اسرائیل،‌ بیش از سه هزار حمله به تاسیسات غیرنظامی‌اش کرده است.
+
+عباس عراقچی، وزیر خارجه، امارات متحده را به داشتن نقش فعال در حملات آمریکا و اسرائیل به ایران متهم کرده است. ایران می‌گوید فقط به تاسیسات نظامی و نهادهای مرتبط با آمریکا و اسرائیل در امارت حمله کرده است.
+
+https://bbc.in/3PnCZdc
+@BBCPersian
+</div>
+
+## bbcpersian — post 281309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک روز پس از به نمایش درآمدن فیلم «تمرین‌هایی برای یک انقلاب»، ساخته پگاه آهنگرانی در هفتاد و نهمین جشنواره فیلم کن، عوامل تولید و ساخت این فیلم مقابل دوربین رسانه‌ها قرار گرفتند.
+
+پس از نمایش دیروز که با استقبال تماشاچیان همراه بود،‌ خانم آهنگرانی اثر خود را به مادرانی تقدیم کرد که فرزندانشان را در راه مبارزه برای آزادی از دست داده‌اند.
+
+کاوه فرنام و آدریا مونس تهیه کنندگان فیلم «تمرین‌هایی برای یک انقلاب» هستند و تدوین آن با آرش آشتیانی بوده است.
+
+پگاه آهنگرانی که خود راوی این فیلم است می‌گوید که از میان پنج پرتره از خویشاوندان و استادانش و پنج شکل از مقاومت، در این فیلم داستان زندگی خودش را روایت کرده است.
+
+به گفته خانم آهنگرانی او با استفاده از آرشیوهای شخصی، ویدئوهای خانگی، تصاویر اعتراضات خیابانی، روزنامه‌ها و صداهای ضبط‌ شده، بیش از ۴۰ سال از تاریخ ایران را بازخوانی ‌کرده است.
+
+📷Corbis via Getty Images/ AFP via Getty Images/ Getty Images/ EPA/ BBC Images
+
+@BBCPersian
+</div>
+
+## bbcpersian — post 281307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ و پیامدهایشان چه تاثیری روی وضعیت مسکن شما گذاشته است؟ آیا پس از جنگ مجبور به اسباب‌کشی شده‌اید؟
+بر اساس ارزیابی وزارت کار ایران، جنگ جنگ آمریکا و اسرائیل با ایران موجب بیکاری مستقیم و غیرمستقیم دو میلیون نفر شده است. از دست دادن شغل و کاهش درآمد برای آنها که در خانه‌های اجاره‌ای زندگی می‌کنند بسیار دشوارتر است.
+اگر مستأجرید و در هفته‌های اخیر به دلایل اقتصادی مجبور به اسباب‌کشی شده‌اید، تجربیاتتان را با ما در میان بگذارید. جنگ چه تأثیری روی درآمد شما گذاشت؟ واکنش صاحبخانه‌ چه بود؟ آیا خانه جدیدی اجاره کردید یا به خانه خانواده یا دوستان رفتید؟ این ماجرا چه تاثیری بر روحیه و سلامت روان شما گذاشته است؟
+اگر تجربه و مشاهده‌ای از اجاره‌نشینی دارید، با هشتگ #مسکن برای ما بفرستیدبه:
+آی‌مسج و واتس‌اپ: ۰۰۴۴۷۳۴۲۰۳۲۱۱۳
+پیامگیر تلگرام:t.me/bbcshoma
+
+📷 ایرنا
+عصر ایران
+
+@BBCPersian
+https://bbc.in/43cTEDl
+</div>
+
+## bbcpersian — post 281306
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281306_1779037174.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس گفت: «آمریکا یا باید شرایط جمهوری اسلامی ایران را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه ایران از موضع قدرت با آن مذاکره خواهد کرد و باید تسلیم موشک های ما شود.»
+
+او گفت که ایران «از هیچ یک از شروط خود کوتاه» نمی‌آید.
+
+امروز خبرگزاری‌های ایران گزارش‌هایی از شروط آمریکا در پاسخ به پیشنهادهای ایران منتشر کردند.
+
+خبرگزاری مهر امروز نوشت: «آمریکا بدون دادن هیچ امتیاز ملموسی به ایران خواهان گرفتن امتیازاتی است که در جنگ موفق به تحقق آن نشده است.»
+
+در همین حال، گزارش‌هایی هم منتشر شد که ایران پاسخ خود را به پاکستان منتقل کرده است.
+
+📷Mizan
+https://bbc.in/4nDeg19
+
+@BBCPersian
+</div>
+
+## Lichargoo — post 24897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت جوریه که پورن دیدن، گرون تر از جنده کردنه.
+</div>
+
+## hamclasixii — post 75408
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75408_1779037175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NOTESar1405_v1.pdf
+</div>
+
+## withyashar — post 11497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: زمان برای ایران در حال اتمام است بهتر است خیلی سریع اقدام کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت بسیار حیاتی است! @withyashar
+</div>
+
+## withyashar — post 11496
+
+<div align="center">
+  <img src="telegram/content/withyashar_11496_1779037176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: زمان برای ایران در حال اتمام است
+
+بهتر است خیلی سریع اقدام کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند.
+وقت بسیار حیاتی است!
+
+@withyashar
+</div>
+
+## withyashar — post 11495
+
+<div align="center">
+  <a href="telegram/content/withyashar_11495_1779037177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## withyashar — post 11494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحاد باید شکل بگیره ! حتی بچه هیئتی ! تغییر رژیم شکل میگیره ولی تغییر عقیده کار یک شبه نیست و باید هر دو سمت شل کنند ! من خودم کافرم ولی تیم باید تکمیل باشه ! آس پیک شخص شاهزاده رضا پهلوی تنها هستش ! ترامپم مارو میره قاهره شک نکنید !
+</div>
+
+## withyashar — post 11493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد پروین دوست خوبمه امیدوارم با تغییر جهت به سمت مردم برگردند
+</div>
+
+## withyashar — post 11492
+
+<div align="center">
+  <a href="telegram/content/withyashar_11492_1779037179.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی پروین در بیمارستان بستری شد علی پروین پیشکسوت باشگاه پرسپولیس برای دومین بار در ماه اخیر در بیمارستان بستری شد. پروین به دلیل چکاپ پیگیری برخی از موارد پزشکی مرتبط با خود در بیمارستان بستری شده و نزدیکان او معتقد هستند که احتمالاً تا یکی دو روز آینده…
+</div>
+
+## withyashar — post 11491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی پروین در بیمارستان بستری شد
+
+علی پروین پیشکسوت باشگاه پرسپولیس برای دومین بار در ماه اخیر در بیمارستان بستری شد.
+
+پروین به دلیل چکاپ پیگیری برخی از موارد پزشکی مرتبط با خود در بیمارستان بستری شده و نزدیکان او معتقد هستند که احتمالاً تا یکی دو روز آینده از بیمارستان مرخص می‌شود.
+@withyashar
+</div>
+
+## withyashar — post 11490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه عبری کان: نتانیاهو و ترامپ، بیش از نیم ساعت با یکدیگر تلفنی گفت‌وگو کردند و در مورد امکان از سرگیری درگیری‌ها در ایران و همچنین سفر ترامپ به چین بحث و تبادل نظر نمودند
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 19:28
 ---
 
