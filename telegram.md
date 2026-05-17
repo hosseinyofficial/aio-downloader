@@ -7,6 +7,288 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 23:44
+---
+
+## thisisermia — post 68
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من این پروژه رو از مدتی قبل برای استفاده شخصی توسعه داده بودم و خودم ازش استفاده می‌کردم. حدود ۳ روز پیش منتشرش کردم، اما چند دقیقه بعد ریپو رو private کردم. با توجه به اینکه پروژه‌های مشابه خیلی سریع دست‌به‌دست شدن و شناخته شدن، تصمیم گرفتم نسخه به‌روزشده‌تر…
+</div>
+
+## thisisermia — post 67
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://github.com/theermia/BaleTunnel یه اسکریپت اپن‌سورس برای تونل کردن ترافیک اینترنت با استفاده از زیرساخت تماس صوتی پیامرسان بله و پروتکل WebRTC هست. توی این روش، دیتا از طریق DataChannel به‌صورت رمزنگاری‌شده منتقل میشه و از بیرون شبیه یه تماس معمولی…
+</div>
+
+## thisisermia — post 66
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://github.com/theermia/BaleTunnel
+
+یه اسکریپت اپن‌سورس برای تونل کردن ترافیک اینترنت با استفاده از زیرساخت تماس صوتی پیامرسان بله و پروتکل WebRTC هست. توی این روش، دیتا از طریق DataChannel به‌صورت رمزنگاری‌شده منتقل میشه و از بیرون شبیه یه تماس معمولی داخل بله دیده میشه.
+
+برای راه‌اندازیش به یه VPS خارج از کشور و دو تا اکانت پیامرسان بله نیاز دارید (می‌تونید از شماره مجازی هم استفاده کنید). کل توضیحات و مراحل راه‌اندازی داخل ریپازیتوری قرار داده شده.
+
+اگر امکانش رو دارید، می‌تونید یه ویدیو از نحوه راه‌اندازی و استفاده از پروژه تهیه کنید و برامون بفرستید تا برای بقیه هم منتشر کنیم. اگر هم VPNای با این روش ساختید و قصد انتشار عمومی داشتید، از سمت ما مشکلی نیست.
+
+یه پروکسی تست هم با همین روش بالا آوردم که مشخص نیست تا چه زمانی فعال می‌مونه، ولی برای تست می‌تونید ازش استفاده کنید.
+
+طبق تست‌های من با اینترنت ADSL مخابرات و روی سرور دیتاسنتر Infomaniak سوئیس، حدوداً 12Mbps دانلود داده. آپلود رو موفق به تست نشدم و پینگ بین 120 تا 170ms بود.
+</div>
+
+## persian_trend_official — post 14361
+
+
+
+
+## persian_trend_official — post 14357
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14357_1779048862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی درباره انهدام یک پهپاد آمریکایی در یمن /فارس نیوز
+
+🔹برخی رسانه‌ها با انتشار تصاویری، از انهدام یک فروند پهپاد MQ9 ارتش آمریکا در آسمان استان مارب به دست نیروهای مسلح یمن خبر می‌دهند‌.
+
+🔸نیروهای مسلح یمن هنوز بیانیه‌ای در این باره صادر نکرده است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه نسخه هاست داخلی آپلود خواهد شد و لطفا اگر امکانش رو دارید نسخه صوتی رو از طریق همین اپ های پادکست بشنوید. در مصرف حجم بین تلگرام و اپ های پادکست هیچ تفاوتی نیست.
+از توجه شما به این موضوع متشکرم
+الیاس فرخ
+</div>
+
+## persian_trend_official — post 14354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب رو از لینک های زیر بشنوید :
+
+https://open.spotify.com/episode/0WrkfsVN8KUvGUSSHYT887?si=sYOmvpJERuCureVC0TULQQ
+
+
+https://castbox.fm/vi/946274710
+</div>
+
+## persian_trend_official — post 14353
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14353_1779048863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو فروند هواپیمای نیروی دریایی ایالات متحده EA-18G Growler (گونه‌ای از F/A-18) در حین اجرای نمایشی در نمایش هوایی Gunfighter Skies در پایگاه نیروی هوایی Mountain Home در آیداهو با یکدیگر در هوا برخورد کردند.
+چهار خدمه با «چهار چتر نجات سالم» موفق به خروج اضطراری شدند.
+هواپیماهای برخورد کرده امروز متعلق به تیم نمایشی Growler Demo بودند که از اسکادران VAQ-129 «Vikings» تشکیل شده
+این اسکادران همان تیم آموزشی اصلی نیروی دریایی برای خلبانان EA-18G است.
+
+یکی از همین هواگان VAQ-129 قبلاً هم در یک برخورد هوایی دیگر در سال ۲۰۱۷ در پایگاه NAS Fallon آسیب دیده بود و بیش از ۲۰۰۰ ساعت کار تعمیراتی نیاز داشت تا دوباره آماده پرواز شود.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14352
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14352_1779048865.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ قرار است سه‌شنبه با ارشدترین مقامات امنیتی در اتاق وضعیت دیدار کند — Axios دستور جلسه: گزینه‌های نظامی علیه ایران ☆Phantom☆ 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 499000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای سخنگوی وزارت دفاع عربستان:
+
+رهگیری ۳ فروند پهپاد که از حریم هوایی عراق آمده بودند.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏فقط این رشته‌های طراحی لباس و نمیدونم مدیریت برند و اینارو میشه تو کافه خوند. شما جرات داری برو کافه مقاومت مصالح بخون ببینم گه میفهمی یا نه.
+
+
+• یانگ استنلی •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابا من عاشق اینترنتم، تمام زندگیم با اینترنت بوده، هرچی بلدم از نرم افزار، زبان، از سبک زندگی از لباس پوشیدن از سالم زندگی کردن، موزیک‌خوب گوش دادن خوب فیلم دیدن. عاشق خوندن نظرات همه دنیام. از کل دانشگاهی که رفتم اینترنت بیشتر از همش بهم چیز یادداده. یعنی چی آخه؟ بازش کنید دیگه
+
+• Mehrnaz. •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498997
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498997_1779048865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺 ادامه رفت و آمد هواپیماهای ترابری ارتش آمریکا به خاورمیانه!
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498996
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498996_1779048866.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخورد دو جنگنده آمریکایی در نمایش هوایی
+
+دو جنگنده F/A-18 نیروی دریایی ایالات متحده هنگام اجرای نمایش هوایی در آیداهو در میانهٔ هوا با هم برخورد کردند.
+
+تمام خلبانان بیرون پریدند و دیده شدند که با چتر نجات به سلامت فرود می‌آیند.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آموزش و پرورش: آزمون‌های نهایی حداقل ۱۵ روز پس از خروج کشور از حالت غیرعادی و شرایط جنگی با اعلام برنامه امتحانی جدید برگزار خواهد شد.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کشته شدن چندین نفر در لبنان و غزه در حملات هوایی
+
+🔻وزارت بهداشت لبنان می‌گوید که در اثر حملات هوایی روز یکشنبه اسرائیل به مناطقی در جنوب این کشور پنج نفر از جمله دو کودک کشته شدند. در این حملات تعدادی هم مجروح شدند.
+
+گزارش‌ها و تصاویر حاکی از بلند شدن دود سیاه رنگ از محل‌هایی است که هدف قرار گرفته است.
+
+از غزه هم گزارش شده که مقامات بهداشتی می‌گویند که پنج نفر در حملات اسرائیل به این باریکه کشته شدند. بر اساس این گزارش سه نفر در حمله هوایی به یک آشپزخانه عمومی در نزدیکی بیمارستان الاقصی در مرکز غزه کشته شدند.
+
+تحلیلگران می‌گویند که اسرائیل از زمان آتش‌بس با ایران،‌ طی هفته‌های اخیر حملات خود را به غزه افزایش داده است.
+
+ارتش اسرائیل درباره حملات اخیر در لبنان و غزه اظهارنظری نکرده است.
+
+https://bbc.in/4dhWi0J
+@BBCPersian
+</div>
+
+## bbcpersian — post 281323
+
+<div align="center">
+  <a href="telegram/content/bbcpersian_281323_1779048867.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز یکشنبه ۲۷ اردیبهشت ۱۴۰۵
+@BBCPersian
+</div>
+
+## Pesari_Ke_Konie — post 44957
+
+<div align="center">
+  <img src="telegram/content/Pesari_Ke_Konie_44957_1779048869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسرا میتونن اینجوری نگاهتون کنن و فکر کنن روغن ماشین چقدر گرون شده خارشو گاییدم
+
+
+@Pesari_Ke_Konie
+</div>
+
+## hamclasixii — post 75411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴#فوری | تصمیمات امتحانات خرداد در استان خراسان رضوی:
+
+🔹دوره ابتدایی (پایه اول تا ششم):
+    تمام دروس غیرحضوری
+🔹متوسطه اول (هفتم و هشتم):
+    ۵ درس حضوری (داخلی): عربی، ریاضی، علوم، فارسی، مطالعات اجتماعی
+    سایر دروس غیرحضوری
+🔹پایه نهم (متوسطه اول):
+    همان ۵ درس به‌صورت حضوری و هماهنگ استانی، مابقی غیرحضوری
+🔹 پایه دهم:
+    تمام دروس حضوری
+🔹 پایه یازدهم و دوازدهم:
+    منتظر اعلام وزارت آموزش و پرورش (با توجه به تأثیر ۶۰٪ در کنکور)
+🔹 هنرستان‌ها:
+    دروس کتبی و غیرمهارتی حضوری از ۹ خرداد
+    دروس مهارتی و فنی بعد از پایان آموزش حضوری ارزیابی می‌شوند
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای فارس : ترامپ با آزادسازی دارایی‌های بلوکه شده مخالفت کرد!
+@withyashar
+</div>
+
+## withyashar — post 11516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای پدافند در اهواز
+@withyashar
+</div>
+
+## withyashar — post 11515
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید: ترامپ و رئیس جمهور چین به توافق رسیدند که ایران نباید به سلاح هسته‌ای دست یابد و توافق کردند هیچ کشوری نباید برای تنگه هرمز عوارض دریافت کند
+@withyashar
+</div>
+
+## withyashar — post 11514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت رسمی اسرائیل به فارسی: شایدم اصلا چیزی ( جنازه خامنه ای) برای دفن کردن باقی نمونده...
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 22:52
 ---
 
