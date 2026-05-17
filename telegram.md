@@ -7,6 +7,612 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 12:50
+---
+
+## persian_trend_official — post 14314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دوستان، این حساب رسمی نیست. این اکانت صرفاً با پرداخت حدود ۱۰۰۰ دلار در ماه، تیک زرد (تأیید اشتراکی) دریافت کرده است. حساب‌های رسمی دولتی و سازمانی معمولاً تیک خاکستری دارند و اطلاعات هویتی و سازمانی آن‌ها به‌صورت شفاف در بخش Bio یا مشخصات حساب ثبت شده…
+</div>
+
+## persian_trend_official — post 14313
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14313_1779009643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢توییت اتاق جنگ اسرائیل 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان
+
+💢دادگاه رسیدگی به اتهامات صادق ساعدی‌نیا برگزار شد
+
+🔹جلسه رسیدگی به اتهامات صادق ساعدی‌نیا، مدیرعامل شرکت صنعت غذایی و مدیر کافه‌های زنجیره‌ای ساعدی‌نیا از متهمان کودتای آمریکایی صهیونیستی دی ۱۴۰۴ در دادگاه انقلاب قم با حضور رئیس و مستشاران دادگاه، نماینده دادستان، متهم صادق ساعدی‌نیا و وکلای متهم برگزار شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14311
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14311_1779009643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نشان ویژه برای خدمه ناو هواپیمابر «جرالد آر. فورد» و ناو گروه آن پس از جنگ ایران
+
+💢سرپرست وزارت نیروی دریایی آمریکا اعلام کرد گروه ضربت ناو هواپیمابر «جرالد آر. فورد» و نیروهای گروه ضربت ناو هواپیمابر ۱۲ به‌دلیل عملکردشان در خاورمیانه طی جنگ اخیر ایران، نشان «واحد ریاست جمهوری» دریافت کرده‌اند.
+
+💢بر اساس این بیانیه:
+
+▪️ این گروه رزمی در عملیات‌های گسترده علیه اهداف ایرانی مشارکت داشته است
+▪️ ادعا شده ۱۲۵ شناور جنگی ایرانی هدف قرار گرفته‌اند
+▪️ همچنین ۲۰۷ موشک کروز «تاماهاوک» به اهدافی در ایران شلیک شده است
+
+🔻در ادامه آمده:
+
+💢 هواگردهای مستقر بر ناو «جرالد آر. فورد» بیش از ۱۷۰۰ سورتی پرواز رزمی از مدیترانه و دریای سرخ انجام داده‌اند
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14310
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14310_1779009643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سی‌ان‌ان: ایران به کابل‌های اینترنتی تنگه هرمز چشم دوخته است!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14309
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14309_1779009644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢توییت اتاق جنگ اسرائیل
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14308
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14308_1779009644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌️ این عکس را چندین بار در گوگل لنز جست‌وجو کردیم، اما هیچ منبع معتبر یا رسانه قابل‌اعتمادی برای آن پیدا نشد.
+
+به همین دلیل، به‌نظر می‌رسد این تصویر با هوش مصنوعی ساخته شده و واقعی نیست.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14307
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14307_1779009644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢محمدباقر قالیباف، نمایندۀ ویژۀ ایران در امور چین شد
+
+🔹پیش‌تر « علی لاریجانی» و «عبدالرضا رحمانی فضلی» چنین مسئولیتی را برعهده داشتند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14306
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14306_1779009645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیلی میل: نخست وزیر انگلیس استعفا می‌دهد
+
+💢دیلی میل گزارش داد استارمر نخست وزیر انگلیس در بحبوحه شورش فزاینده در حزبش، به نزدیکانش اطلاع داده است که قصد استعفا دارد.
+
+💢بیش از ۹۰ نماینده مجلس از حزب کارگر در روزهای اخیر خواستار استعفای او شده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت منتسب به اتاق جنگ اسرائیل یک حساب رسمی نیست.
+
+🔹امروز توییتی از این اکانت بسیار پر بازدید شده بود که مشخص شد این حساب توییتری یک حساب رسمی نیست.
+🔹این اکانت صرفاً با پرداخت حدود ۱۰۰۰ دلار در ماه، تیک زرد (تأیید اشتراکی) دریافت کرده است.
+🔹حساب‌های رسمی دولتی و سازمانی معمولاً تیک خاکستری دارند و اطلاعات هویتی و سازمانی آن‌ها به‌صورت شفاف در بخش Bio یا مشخصات حساب ثبت شده است.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498901
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498901_1779009645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جویدن آدامس؛ راهی ساده برای افزایش تمرکز؟
+
+🔹برخی پژوهش‌ها نشان می‌دهد جویدن آدامس می‌تواند به‌طور موقت بر عملکرد مغز تأثیر مثبت بگذارد.
+🔹عمل جویدن باعث افزایش جریان خون در مغز می‌شود و ممکن است به بهبود تمرکز و هوشیاری کمک کند.
+🔹مطالعاتی نیز نشان داده‌اند که آدامس جویدن می‌تواند در کوتاه‌مدت حافظه کاری و سرعت واکنش را کمی افزایش دهد.
+🔹همچنین این کار ممکن است سطح استرس را کاهش دهد و احساس آرامش بیشتری ایجاد کند.
+🔹با این حال، اثرات آن معمولاً کوتاه‌مدت است و جایگزین روش‌های اصلی تقویت مغز مانند خواب کافی و تغذیه سالم نمی‌شود.
+🔹مصرف بیش‌ازحد آدامس، به‌ویژه انواع شیرین، می‌تواند برای دندان‌ها یا دستگاه گوارش مشکل ایجاد کند.
+🔹در مجموع، آدامس می‌تواند کمک کوچکی برای تمرکز باشد، اما تأثیر آن محدود و موقتی است.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ضرورت بازگشایی سرویس‌های حیاتی؛ میلیون‌ها گوشی و رایانه در معرض فرسودگی نرم‌افزاری
+
+🔹 ادامه قطع اینترنت بین‌الملل در ایران، علاوه بر کاهش دسترسی کاربران به خدمات آنلاین، حالا به یکی از چالش‌های جدی زیرساخت دیجیتال کشور تبدیل شده است. بسیاری از گوشی‌های هوشمند، رایانه‌ها و سامانه‌های نرم‌افزاری به دلیل ناتوانی در دریافت بروزرسانی‌های امنیتی و سیستمی با اختلال، کاهش کارایی و افزایش آسیب‌پذیری امنیتی مواجه شده‌اند؛ وضعیتی که کارشناسان آن را تهدیدی برای امنیت سایبری و پایداری خدمات دیجیتال می‌دانند./سیتنا
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نماینده کنگره آمریکا: باید فشار اقتصادی بر ایران را تشدید کنیم / کارلوس خیمنز:
+
+"به نظرم باید فشار اقتصادی بر ایران را حفظ کنیم. امیدوارم محاصره کمی بیشتر ادامه پیدا کند تا فشار اقتصادی علیه آن‌ها واقعاً تشدید شود... باید این فشار را حفظ کنیم. خیلی زود آن‌ها دیگر جایی برای ذخیره نفت خود نخواهند داشت، و بعد وقتی شروع کنند به تعطیل کردن چاه‌ها و تأسیسات نفتی، این واقعاً برایشان فاجعه‌بار خواهد بود.
+
+چون حتی وقتی دوباره آنها را راه‌اندازی کنید، بسیاری از آن‌ چاه‌ها دیگر به سطح تولید امروز برنمی‌گردند؛ بنابراین در آینده هم به آن‌ها آسیب خواهد زد. هرچه این وضعیت بیشتر طول بکشد، بدتر می‌شود. دست بالا با ماست، و امیدوارم رئیس‌جمهور این را بداند و به چیزی کمتر از اینکه ایران خواسته‌های ما را بپذیرد، رضایت ندهد."
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498898
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498898_1779009646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: ایران به کابل‌های اینترنتی تنگه هرمز چشم دوخته است!
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاسخ تند ارتش پاکستان به هند: تهدید همسایه هسته‌ای دیوانگی است
+
+روابط عمومی ارتش پاکستان:
+
+🔹تهدید یک همسایه هسته‌ای مستقل با حذف از جغرافیا، یک اقدام استراتژیک یا ریسک‌پذیر نیست، بلکه از بین رفتن محض ظرفیت‌های شناختی، دیوانگی و جنگ‌طلبی با وجود دانستن این واقعیت است که چنین حذف جغرافیایی قطعاً متقابل و جامع خواهد بود.
+
+🔹فرمانده ارتش هند بیانیه‌ای تحریک‌آمیز مبنی بر اینکه پاکستان باید تصمیم بگیرد که آیا می‌خواهد بخشی از جغرافیا و تاریخ باشد یا خیر صادر کرد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498896
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498896_1779009647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژابی به فوتبال انگلیس بازگشت!
+
+🔹با اعلام رسمی باشگاه چلسی، ژابی آلونسو با قراردادی ۴ ساله از ابتدای فصل آینده، هدایت آبی‌های لندن را برعهده خواهد گرفت.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازگشایی بازار سهام از روز سه‌شنبه ‌ معاون نظارت بر بورس‌ها و ناشران سازمان بورس و اوراق بهادار: برنامه‌ریزی لازم برای آغاز معاملات سهام و ابزارهای مربوط به آن از روز سه‌شنبه ۲۹ اردیبهشت ۱۴۰۵ انجام شده است. ‌ بر اساس هماهنگی‌های صورت‌گرفته و پس از اخذ مجوزهای…
+</div>
+
+## OfficialPersiaTwiter — post 498894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی قوه قضائیه در مورد پرونده محمد ساعدی‌نیا: 🔹 که اگر کسی مرتکب عملی با آثاری مانند خسارت شده باشد، به صرف عذرخواهی پرونده‌اش مختومه نمی‌شود 🔹 جهانگیر گفت: رویه قضایی نشان می‌دهد که اگر کسی مرتکب عملی شده باشد که آن عمل آثاری از خود به جای گذاشته باشد،…
+</div>
+
+## OfficialPersiaTwiter — post 498893
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498893_1779009647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نروژ مرفه‌ترین کشور جهان در سال ۲۰۲۶
+
+🔹نروژ در سال ۲۰۲۶ به عنوان مرفه‌ترین کشور جهان رتبه‌بندی شده است.
+🔹این کشور در صدر گروه کشورهای شمال اروپا قرار دارد.
+🔹رتبه‌بندی ترکیبی از عواملی مانند درآمد، مراقبت‌های بهداشتی، آموزش، اعتماد عمومی و ثبات اقتصادی است.
+🔹با وجود داشتن بزرگ‌ترین اقتصاد جهان، آمریکا در کل رتبه بسیار پایین‌تری دارد.
+🔹این موضوع تفاوت بین اندازه اقتصادی و نتایج گسترده‌تر کیفیت زندگی را نشان می‌دهد.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت رانتی در بازار سیاه/ قیمت اینترنت پرو ۸ میلیون تومان شد
+
+گزارش اقتصادنیوز از وضعیت بازار سیاه اینترنت:
+🔹️ گزارش‌های میدانی و پیام‌های واسطه‌ها حاکی از آن است که زیرساخت‌های ثبت‌نام برخی اپراتورها (مانند همراه اول) به دلیل هجوم این درخواست‌ها یا بازنگری در قوانین، به طور موقت مسدود شده است، در حالی که در اپراتورهای دیگر (مانند ایرانسل) این بازار سیاه با وعده فعال‌سازی ۳ تا ۱۵ روزه همچنان داغ است. 
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزئیاتی از طرح فروش سانتی‌متری مسکن در تهران
+
+مدیرعامل سازمان سرمایه‌گذاری شهرداری تهران:
+🔹سال گذشته جزئیات طرح «خانه‌ریز» و اهداف آن تشریح شد و قرار بود عرضه اولیه پروژه در اسفندماه انجام شود، اما همزمانی با شرایط جنگی و تلاطم‌های ناشی از آن، اجرای طرح را با تأخیر مواجه کرد.
+🔹یکی از موانع اصلی آغاز پروژه، صدور پروانه شهرسازی بود که خوشبختانه هفته گذشته صادر شد و اگر شرایط طبق برنامه پیش برود، تا پایان اردیبهشت یا حداکثر هفته نخست خرداد، عرضه عمومی پروژه آغاز خواهد شد.
+🔹شهروندان می‌توانند از طریق سامانه و با ایجاد حساب کاربری و شارژ کیف پول خود، از مبالغ پایین حتی یک میلیون تومان در این پروژه سرمایه‌گذاری کنند.
+🔹ارزش سهام افراد متناسب با پیشرفت فیزیکی پروژه و قیمت روز ملک افزایش پیدا می‌کند و کارشناسان رسمی به‌صورت ماهانه ارزش‌گذاری پروژه را انجام خواهند داد. در نتیجه سرمایه افراد همزمان با رشد پروژه و تورم بازار مسکن افزایش خواهد یافت./تسنیم
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498889
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498889_1779009648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اموال مهدی نصیری و ۲۱ نفر از عناصر وابسته به دشمن در استان سمنان به نفع مردم توقیف شد 🔹 اسامی ۲۲ نفر شامل: مهدی نصیری، زینب عوض آبادی، فاطمه کوچک‌پور، محمدعلی فئوادی، زینب اکبری، فرانک رهبر، هدیه کیمیایی، درسا رهبر، علی آریان صابر، رها پوراسماعیل، احسان…
+</div>
+
+## OfficialPersiaTwiter — post 498888
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498888_1779009648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏«محمدباقر قالیباف»، به عنوان نماینده ویژه ایران در امور چین منصوب شد؛ پیش‌تر «شهید علی لاریجانی» و «عبدالرضا رحمانی فضلی» چنین مسئولیتی را بر عهده داشتند.
+
+》OPT《
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏«حالا یه بار کافه نری که نمیمیری»، «چندتا آهنگ نتونی تو اسپاتیفای گوش ندی که نمیمیری»
+اتفاقاً کم‌کم میمیریم. زندگی فقط زنده بودن نیست؛ همین خوشی‌ های کوچیکه: قهوه، موسیقی، دورهمی، شب‌گردی، خریدای الکی. وقتی یکی‌یکی ازت گرفته بشن، فقط نفس میکشی
+
+》daylight《
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281287
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281287_1779009649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس‌کل دادگستری استان قم از مصادره سه آپارتمان مهدی نصیری و «وابستگانش» خبر داد.
+
+بنابر اعلام دادگستری قم این آپارتمان‌ها «در حوزه ثبتی استان قم» بوده است.
+
+کاظم موسوی گفت این اموال با گزارش اطلاعات سپاه و پیگیری دادسرای مرکز استان قم توقیف شده است.
+
+قوه قضائیه ایران حدود دو هفته پیش گفته بود که «با دستور مقام قضائی»، اموال آقای نصیری و ۲۱ نفر دیگر که «علیه امنیت و ثبات کشور» اقدام کرده بودند در استان سمنان، مصادره شده است.
+
+مهدی نصیری که مدتی مدیر مسئول روزنامه کیهان بود در سال‌های اخیر مخالف حکومت و از ایران خارج شد.
+
+قوه قضائیه پس از جنگ اخیر برای کسانی که «هم‌صدا» یا «همراه» دشمن می‌خواند، پرونده تشکیل می‌دهد و با استناد به قانون «تشدید مجازات جاسوسی»، مجازات‌هایی مثل ممنوعیت فعالیت و توقیف اموال در نظر می‌گیرد.
+
+قوه قضائیه فهرستی هم از افرادی منتشر کرده که برای «حمایت از جنگ»، اموالشان توقیف یا مصادره شده است.
+
+با تشدید ضبط اموال طیف وسیعی از اقشار جامعه از خبرنگار تا بازیگر و فعال سیاسی و هنرمند و ورزشکار، قوه قضائیه جلوگیری از انتقال اموال را هم آغاز کرده است.
+
+📸TABNAK
+@BBCPersian
+</div>
+
+## bbcpersian — post 281286
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281286_1779009649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی تاج دیدار و مداکره با دبیر کل فیفا «مثبت» خواند.
+رئیس فدراسیون فوتبال ایران در استانبول با ماتیاس گرافستروم، دبیر کل فیفا، دیدار و گفت‌گو کرد.
+آقای تاج گفت که در این دیدار مقامات فیفا به «۱۰ نکته‌ای که ایران مطرح کرد، گوش دادند و برای هر یک از آنها راه‌حل ارائه کردند.»
+او ابراز امیدواری کرد که تیم ملی فوتبال ایران بتواند بدون هیچ مشکلی به جام جهانی برود.
+ماتیاس گرافستروم هم گفت: «نشست بسیار خوب و سازنده‌ای با فدراسیون فوتبال ایران داشتیم. ما همکاری نزدیکی داریم و مشتاقانه منتظر استقبال از آنها در جام جهانی فیفا هستیم.»
+تیم ملی فوتبال ایران قرار است فردا تهران را به مقصد ترکیه ترک کند. اردوی آماده سازی تیم ملی در ترکیه برگزار می‌شود.
+
+📸Reuters
+https://bbc.in/4uTejZc
+@BBCPersian
+</div>
+
+## Lichargoo — post 24894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببینید دختر ایرونی چیه که دریک با وجود اینکه تو لیست اکساش ریحانا هست همش داره تو اهنگاش از اکس ایرانیش میگه
+</div>
+
+## Pesari_Ke_Konie — post 44953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای کسی نامحدود نباشین، آدم‌ها گیگی دوست دارن.
+
+
+@Pesari_Ke_Konie
+</div>
+
+## Pesari_Ke_Konie — post 44952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز May 17، روز جهانی کونیا یا همون همجنس‌گراهاست 🏳️‍🌈 @Pesari_Ke_Konie
+</div>
+
+## Pesari_Ke_Konie — post 44951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز May 17، روز جهانی کونیا یا همون همجنس‌گراهاست 🏳️‍🌈
+
+@Pesari_Ke_Konie
+</div>
+
+## pussy0poeemm — post 167913
+
+<div align="center">
+  <a href="telegram/content/pussy0poeemm_167913_1779009650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو مربوط به اواسط جنگه
+بچه پولدارامون تو یه دنیای دیگن
+
+@pussy0poeemm
+</div>
+
+## pussy0poeemm — post 167912
+
+<div align="center">
+  <a href="telegram/content/pussy0poeemm_167912_1779009651.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان این داستان تو فیلم هندی هم قفله😂فقط فحش های پسره
+
+
+@pussy0poeemm
+</div>
+
+## Tans_Footbali — post 236359
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236359_1779009653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آب هنوز به طبقه بالای کشتی نرسیده! توی دوران جنگ و فشار اقتصادی ناشی از بیکاری چن میلیونی یه سری بچه پولدار اینطوری کف تهران عشق و حال میکنن
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236358
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236358_1779009654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو صدا و سیما به مجری ها اسلحه دادن که برای دشمن رجز بخونن. @Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236357
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236357_1779009655.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری: خواهش می‌کنم سلام من رو به مجتبی خامنه‌ای برسونید.
+
+حدادعادل: والا منم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونم.
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236356
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236356_1779009656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇼×🇮🇷 کویت تصویر تسلیم شدن چهار تروریست سپاهی را منتشر کرد!
+
+🚨‏کویت با صدور بیانیه‌ای جمهوری اسلامی را به حمله به جزیره «بوبیان» با قایق‌های ماهیگیری متهم کرد و اعلام کرد نیروهای سپاه تروریستی قصد خرابکاری داشتند؛ یک نظامی کویتی در این درگیری زخمی و ۴ تن از عناصر وابسته به سپاه دستگیر شدند.
+‏چهار سپاهی (احتمالا نیروی قدس) با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند !
+‏
+دو سرهنگ، یک سرگرد و یک ستوان‌یکم عملیات آغاز نشده لو رفت و تسلیم شدند!
+
+@Tans_Footbali
+</div>
+
+## Bad_chaneli — post 39507
+
+<div align="center">
+  <img src="telegram/content/Bad_chaneli_39507_1779009656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت اتاق جنگ اسرائیل «⌛».
+آخرین باری که این توییت رو زدن فرداش حمله رو شروع کردن
+
+@Bad_chaneli
+</div>
+
+## hamclasixii — post 75398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴#فوری | مبنای برگزاری کنکور مصوبات قانونی جاری است/ هیچ گونه تغییری در کنکور امسال نداریم
+
+اطلاعیه مهم ستاد تعلیم و تربیت شورای عالی انقلاب فرهنگی در خصوص مصوبه کنکور:
+🔹ستاد تعلیم و تربیت دبیرخانه شورای عالی انقلاب فرهنگی با صدور اطلاعیه‌ای، به تشریح سیر تکوینی مصوبه سنجش و پذیرش در سه دولت متوالی، بر مرجعیت قانونی شورا بر اساس دستور صریح رهبر شهید انقلاب تأکید کرد.
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11467
+
+
+
+
+## withyashar — post 11466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش شما رئیس سواک میشی شک نکن
+</div>
+
+## withyashar — post 11465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فک کنم ساواک روزی که برگرده باید اول به من بگه دادچ آرشیوتو بیار 🤣
+</div>
+
+## withyashar — post 11464
+
+<div align="center">
+  <a href="telegram/content/withyashar_11464_1779009656.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان بحث داغه دیدن این ویدیو شاهین نجفی هم که در اوایل شروع ‌به کارش برام فرستاد خالی از‌ لطف نیست ، من امید وارم همه با هم متحد باشن و مشکلات تموم بشه
+@withyashar
+</div>
+
+## withyashar — post 11463
+
+<div align="center">
+  <a href="telegram/content/withyashar_11463_1779009658.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا همش به تاریخ پیوست…
+@withyashar
+</div>
+
+## withyashar — post 11462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو اين مدت هر وقت كه ولنجك رد ميشم ياد شما ميافتم، هميشه و هميشه و هميشه اين ويديو رو براى شما گرفتم و صميم قلبم آرزو كردم به زودى خود شمارو تو ايران ببينيم🌸
+</div>
+
+## withyashar — post 11461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، اعلام کرد که کتاب «قدرت مذاکره» او به چاپ پنجم رسیده و در چاپ جدید این کتاب، بخش جدیدی با عنوان «دیپلماسی زیر آتش» درباره روند «مذاکرات غیرمستقیم با آمریکا در جنگ ۱۲ روزه» به آن افزوده شده است.
+@withyashar
+</div>
+
+## withyashar — post 11460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو اين مدت هر وقت كه ولنجك رد ميشم ياد شما ميافتم، هميشه و هميشه و هميشه اين ويديو رو براى شما گرفتم و صميم قلبم آرزو كردم به زودى خود شمارو تو ايران ببينيم🌸
+</div>
+
+## withyashar — post 11459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو اين مدت هر وقت كه ولنجك رد ميشم ياد شما ميافتم، هميشه و هميشه و هميشه
+اين ويديو رو براى شما گرفتم و صميم قلبم آرزو كردم به زودى خود شمارو تو ايران ببينيم🌸
+</div>
+
+## withyashar — post 11458
+
+
+
+
+## withyashar — post 11457
+
+
+
+
+## withyashar — post 11456
+
+
+
+
+---
 📅 بروزرسانی: 1405/02/27 10:53
 ---
 
