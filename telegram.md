@@ -7,6 +7,418 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:31
+---
+
+## persian_trend_official — post 14347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: زمان برای جمهوری اسلامی رو به پایان است.
+ 
+دونالد ترامپ، رئیس‌جمهور اِیالات متحده، شامگاه یکشنبه، ۲۷ اردیبهشت‌ماه با انتشار پیامی در شبکه‌ی اجتماعی خود از این خبر داد که ساعت برای جمهوری اسلامی در حال تیک‌تاک است. رئیس‌جمهور آمریکا به رژیم توصیه کرد بهتر است سریع‌تر حرکت کنند، در غیر این صورت چیزی برای آنها باقی نخواهد ماند.
+دونالد ترامپ این پیام را دقایقی پس از آن منتشر کرد که رسانه‌های اسرائیلی و آمریکایی از گفت‌وگوی او با بنیامین نتانیاهو، نخست‌وزیر اسرائیل خبر دادند.
+تایمز اسرائیل شامگاه یکشنبه گزارش داد بنیامین نتانیاهو، عصر روز یکشنبه و دقایقی پیش از برگزاری یک نشست محدود امنیتی در شامگاه یکشنبه، با دونالد ترامپ، درباره جنگ علیه جمهوری اسلامی گفتگو کرده است.
+ 
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14346
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14346_1779040878.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پیش کانال Fighter Bomber رسانه غیررسمی اما معتبر هوانوردی روسیه تصویری از تست پروازی نسخه دوکابین سوخو-۵۷ منتشر کرد. Su-57D؟ Su-57UB؟ Su-57ED؟ هنوز کسی نمی‌داند و این ابهام در مرحله آزمایش اولیه طبیعی است.
+
+Su-57UB = گزینه اول
+روسیه برای نسخه‌های دوکابین آموزشی-رزمی سنت تاریخی با پسوند UB دارد؛ مثل سوخو-۲۷UB و میگ-۲۹UB — الگویی شناخته‌شده که مشتریان صادراتی آن را می‌شناسند.
+
+Su-57D = گزینه دوم
+پسوند D در روسی به نسخه‌های تخصصی اشاره دارد. اگر مسکو بخواهد نقش رزمی مستقل این پلتفرم را برجسته کند، این گزینه منطقی‌تر می‌شود.
+
+Su-57ED = آخرین گزینه
+ترکیب غیرمعمول حروف و اشاره به نسخه صادراتی، این را ضعیف‌ترین گزینه برای نام رسمی داخلی می‌کند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14345
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14345_1779040879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 ترامپ:
+
+برای ایران ساعت در حال تیک‌تاک است، و بهتر است خیلی سریع شروع به حرکت کنند، وگرنه هیچ چیزی از آن‌ها باقی نخواهد ماند.
+
+زمان یک عامل حیاتی است!
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 498981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گراهام: پیروزی بر ایران حتی ارزش این را دارد که منصب سیاسی خودم را هم از دست بدهم! مجری: ▫️۷۰ درصد مردم آمریکا در یک نظرسنجی جدید گفته‌اند که از عملکرد اقتصادی ترامپ ناراضی هستند. موضوعی که همیشه مسئله اول برای رای‌دهندگان است. اگر نتیجه این جنگ ایرانِ…
+</div>
+
+## OfficialPersiaTwiter — post 498980
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_498980_1779040880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرف با AI, بازی تاج و تخت رو اونجوری که دلش خنک میشده درست کرده
+
+•دیکتاتور حانیه •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای اکسیوس: به گفته دو مقام آمریکایی، انتظار می‌رود ترامپ روز سه‌شنبه جلسه‌ای در «اتاق وضعیت» با تیم ارشد امنیت ملی خود برگزار کند تا گزینه‌های اقدام نظامی را بررسی کند. • OPT • @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای ترامپ در گفت‌وگو با کانال ۱۲ اسرائیل: ایران باید از من بترسد
+
+🔹ما منتظر پیشنهاد دیگری از ایران هستیم قبل از اینکه با قدرت بی‌سابقه‌ای به آن‌ها حمله کنیم.
+
+🔹اگر ایران پیشنهاد خوبی ارائه ندهد، به آنها حمله‌ای شدیدی خواهیم کرد.
+
+🔹ایران باید از من بترسد و محتاط باشد!
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای اکسیوس:
+
+به گفته دو مقام آمریکایی، انتظار می‌رود ترامپ روز سه‌شنبه جلسه‌ای در «اتاق وضعیت» با تیم ارشد امنیت ملی خود برگزار کند تا گزینه‌های اقدام نظامی را بررسی کند.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دسته‌گل جدید مدیران استقلال؛ قرارداد ۲ میلیون و ۸۰۰ هزار دلاری بازیکنی که به ایران نیامد
+
+🔹شکایت کارلوس استراندبرگ، مهاجم سوئدی-موزامبیکی از استقلال که به‌دلیل ارسال قرارداد با ایمیل رسمی باشگاه رقم خورده، حاشیه‌های زیادی ایجاد کرده است.
+
+🔹طبق آخرین اطلاعاتی که به خبرنگار فارس رسیده، رقم مورد توافق استراندبرگ و استقلال بسیار بیشتر از عدد مطرح شده در برخی رسانه‌هاست و این باشگاه مبلغ ۲ میلیون و ۸۰۰ هزار دلار را به‌عنوان دستمزد مهاجم سوئدی برای دو فصل تعیین کرده است.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمال تغییر ساعت رسمی کشور
+
+علی بابایی، رئیس کمیسیون اجتماعی مجلس:
+
+موضوع تغییر ساعت رسمی کشور از طرف دولت است و در مجلس بررسی شده است.
+لایحه اصلاح ساعت رسمی در نوبت صحن قرار دارد تا تصویب شود و در روند حفظ انرژی در کشور موثر است.
+تغییر ساعت اداری به جای ساعت رسمی کشور، تاثیری ندارد و ساعات اداری تغییر نمی‌کند.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498974
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلنسکی:
+
+امروز ما در مقیاسی بسیار بزرگ علیه مسکو عملیات می‌کنیم.
+
+فاصله تا اهداف این بار بیش از ۵۰۰ کیلومتر است.
+
+جنگ به طور قابل پیش‌بینی به «بندرگاه بومی» خود بازمی‌گردد، و این یک سیگنال واضح است که نباید با اوکراین شوخی کرد.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آتش‌سوزی ساختمان آلومینیوم مهار شد
+
+سخنگوی آتش نشانی تهران:
+
+🔹حریق یک باب مغازه به وسعت ۱۲ متر مملو از کالا در طبقه پنجم ساختمان آلومینیوم بدون مصدوم مهار شد.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسیر جنوب به شمال تونل توحید امشب مسدود است
+
+🔹مسیر جنوب به شمال تونل توحید امشب از ساعت ۲۴ تا ۵ صبح روز بعد برای تعمیرات مسدود است.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281320
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281320" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻🎙️پادکست برنامه جام جهان‌نما یکشنبه ۲۷ اردیبهشت ۱۴۰۵
+
+در برنامه رادیویی جام‌جهان‌نمای امروز می‌شنوید؛
+
+گمانه‌زنی و التهاب درباره ازسرگیری جنگ آمریکا و اسرائیل با ایران؛ ترامپ در شبکه‌های اجتماعی از آرامش پیش از طوفان گفت، همزمان تهران گفته برای هر نوع واکنش غافل‌گیرانه آماده است.
+
+حمله پهپادی به محوطه نیروگاه هسته‌ای امارات متحده عربی؛ این کشور گفته آتش‌سوزی مهار شده ولی هنوز منشا حمله مشخص نیست. ایران در واکنش گفته این حمله «توطئه دشمن» است.
+
+هم‌زمان، قالیباف، رئیس مجلس، نماینده ویژه جمهوری اسلامی در امور چین هم شد. از کارشناس مسائل ایران می‌پرسیم آیا تغییر معناداری است؟
+
+و در «گپ روز» امشب می‌شنوید:
+فهرست بازیکنان دعوت‌شده به تیم ملی فوتبال ایران برای جام جهانی اعلام شد. مقام‌های ارشد فدراسیون فوتبال ایران و فیفا هم در استانبول دیدار کرده‌‌اند.
+از خبرنگار ورزشی‌مان می‌پرسیم این فهرست، چندمرده حلاج است؟ شرط و شروط ایران برای شرکت در جام جهانی چه شد؟
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+
+@BBCPersian
+</div>
+
+## bbcpersian — post 281319
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281319_1779040883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ در شبکه تروث سوشال بدون توضیحی نوشت: «ساعت برای ایران در حال تیک‌تاک است و اگر به‌سرعت عمل نکند، چیزی از آنها باقی نخواهد ماند.»
+
+این درحالیست که وزیر کشور پاکستان، کشوری که میانجی کنونی آیران و آمریکاست، امروز در ایران با محمدباقر قالیباف ملاقات کرده است.
+
+سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس امروز گفت: «آمریکا یا باید شرایط جمهوری اسلامی ایران را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه ایران از موضع قدرت با آن مذاکره خواهد کرد و باید تسلیم موشک‌های ما شود.»
+
+او گفت که ایران «از هیچ یک از شروط خود کوتاه نمی‌آید.»
+📷Getty Images
+https://bbc.in/49SmRXU
+
+@BBCPersian
+</div>
+
+## kobsihub — post 27754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یادش بخیر یه زمانی اینترنت انقدر مفت بود که از ویدیوهای اینستا به عنوان چراغ‌قوه استفاده میکردم
+
+Saad @kobsihub
+</div>
+
+## Pesari_Ke_Konie — post 44955
+
+<div align="center">
+  <img src="telegram/content/Pesari_Ke_Konie_44955_1779040884.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نروژ مرفه ترین و دایورتی ترین کشور جهان تو سال ۲۰۲۶ شد نروژ این جایگاه رو بخاطر درآمد خفن،وضعیت خوب مردم،آموزش،ثبات اقتصادی و اعتماد عمومی بدست آورده و همینجوری کشکی بالا نیومده
+
+@Pesari_Ke_Konie
+</div>
+
+## Tans_Footbali — post 236373
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236373_1779040884.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به کانال ۱۲ اسرائیل : ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم
+- اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن
+
+
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ فردا با تیم امنیتی‌اش جلسه داره تا درباره ادامه دادن جنگ با ایران تصمیم بگیرن - Axios
+
+💛@Tans_Footbali
+</div>
+
+## Bad_chaneli — post 39512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاهیا در برابر مردم بی دفاع
+&
+سپاهیا در برابر ارتش دیگر کشورها
+
+@Bad_chaneli
+</div>
+
+## Bad_chaneli — post 39511
+
+<div align="center">
+  <img src="telegram/content/Bad_chaneli_39511_1779040885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#فوری/ ترامپ:
+
+ساعت برای ایران در حال تیک‌تاک است، و بهتر است خیلی سریع شروع به حرکت کنند، وگرنه هیچ چیزی از آن‌ها باقی نخواهد ماند. زمان یک عامل حیاتی است!
+
+@Bad_chaneli
+</div>
+
+## hamclasixii — post 75409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کدهای نظام وظیفه پسران:
+
+
+🔹 کد ۱ ← برای کسی که کارت پایان خدمت داره.
+
+🔹 کد ۲ ← برای کسی که معافیت داره.
+
+🔹 کد ۴ ← برای کسی که دوازدهمیه.
+
+🔹 کد ۵ ← برای کسی که پشت کنکوریه.
+
+🔹 کد ۹ ← برای دانشجو ها ( کسایی که مشغول به تحصیل هستن یا انصراف دادن یا مرخصی گرفتن )
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار فک میکنم عرزشی ها هم منبع معتبر خبریشون تویی 😂 با این حجم ری اکشن هاشون
+</div>
+
+## withyashar — post 11508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار فک میکنم عرزشی ها هم منبع معتبر خبریشون تویی 😂 با این حجم ری اکشن هاشون
+</div>
+
+## withyashar — post 11507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی به نقل از منابعی گزارش دادند حملات به ایران پس از چراغ سبز ترامپ به‌صورت مشترک با آمریکا انجام خواهد شد و بانک اهداف در ایران شامل زیرساخت‌های انرژی است.
+@withyashar
+</div>
+
+## withyashar — post 11506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس به نقل از دو مقام آمریکایی:
+انتظار میره ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کنه تا گزینه‌های اقدام نظامی علیه ایران رو بررسی کنه.
+@withyashar
+</div>
+
+## withyashar — post 11505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: زمان برای ایران در حال اتمام است بهتر است خیلی سریع اقدام کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت بسیار حیاتی است! @withyashar
+</div>
+
+## withyashar — post 11503
+
+<div align="center">
+  <a href="telegram/content/withyashar_11503_1779040886.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعر امشب 😬
+@withyashar
+</div>
+
+## withyashar — post 11502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات آمریکایی به اکسیوس گفتند: مذاکرات با ایران به بن‌بست رسیده است
+@withyashar
+</div>
+
+## withyashar — post 11501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به کانال 12 اسرائیل:
+ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم؛ اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن.
+@withyashar
+</div>
+
+## withyashar — post 11500
+
+
+
+
+## withyashar — post 11499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگوش در پیامی در اینستاگرام اعلام کرد مدال افتخار سال 2026 «جزیره الیس» را دریافت کرده و این جایزه را با «عشق و احترام» به مردم ایران تقدیم می‌کند. @withyashar
+</div>
+
+## withyashar — post 11498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگوش در پیامی در اینستاگرام اعلام کرد مدال افتخار سال 2026 «جزیره الیس» را دریافت کرده و این جایزه را با «عشق و احترام» به مردم ایران تقدیم می‌کند.
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:29
 ---
 
