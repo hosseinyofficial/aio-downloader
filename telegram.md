@@ -7,6 +7,84 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 02:42
+---
+
+## persian_trend_official — post 14368
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14368_1779059541.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🙏🤍
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14367
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14367_1779059542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست قابل تأمل ‌ترامپ که لحظاتی قبل در تروث سوشال منتشر کرده است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## bbcpersian — post 281331
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281331_1779059542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در پی واژگون شدن اتوبوس حامل کارکنان مجمتع گاز پارس جنوبی در عسلویه، شش نفر کشته و ۲۰ نفر مجروح شدند.
+
+ابراهیم عباسی، سخنگوی مجتمع گاز پارس جنوبی به ایسنا گفته است این اتوبوس در حال سفر به شهر کرمانشاه بوده است که در جاده عسلویه - سیراف دچار سانحه و واژگون شده است.
+
+https://bbc.in/4dqYKR9
+📷 Irna
+@BBCPersian
+</div>
+
+## Tans_Footbali — post 236380
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236380_1779059543.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور محسن رضایی :
+هرکسی که ضد جمهوری اسلامیه و باهاش مشکل داره، ضد ایرانم هست.
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل اول اینترمیامی به پورتلند توسط مسی 
+⚫️@FootyRadar
+</div>
+
+## Tans_Footbali — post 236378
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236378_1779059545.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ
+
+💛@Tans_Footbali
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 01:39
 ---
 
