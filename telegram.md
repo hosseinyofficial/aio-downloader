@@ -7,6 +7,301 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 22:52
+---
+
+## persian_trend_official — post 14351
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14351_1779045730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ قرار است سه‌شنبه با ارشدترین مقامات امنیتی در اتاق وضعیت دیدار کند — Axios
+
+دستور جلسه: گزینه‌های نظامی علیه ایران
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2KsilHSCq4o?feature=share
+</div>
+
+## persian_trend_official — post 14349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود ساعت 22 به وقت تهران عزیز لایو امشب رو آغاز میکنیم
+</div>
+
+## OfficialPersiaTwiter — post 498994
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498994_1779045730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلاش برای جرعه‌ای نت بین‌الملل تو خوابگاه با پوزیشن استاندارد توسط دانشجوی ارشد
+پ.ن: تنها جای اتاق که خط میده اون نقطس
+
+• عطا •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تانکر ترکرز:
+
+در روزهای اخیر، سه نفتکش خالی از محموله که تحریمهای آمریکا شامل حال آنهاست، از خط محاصره نیروی دریایی ایالات متحده عبور کرده و وارد محدوده مورد نظر شدند.
+
+یکی از آنها سامانه AIS خود را برای مدت کوتاهی خاموش کرده بود.
+
+دیگری پرچم روسیه را برافراشته است.
+
+سومی نیز در امتداد خط ساحلی عمان حرکت کرد.
+
+این سه کشتی در مجموع ظرفیت حمل ۱.۹ میلیون بشکه نفت ایران را دارند.
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌محسن رضایی: محاصره دریایی آمریکا را می‌شکنیم
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدوداً ۶ سالم بود که دختر همسایه به دروغ به همه می‌گفت: این بتمن نیست! منم برای دفاع از هویتم، ماسک بتمنم رو زدم، شنلم رو بستم و خودمو از پنجره طبقه اول پرت کردم پایین. هنوز سمت راست سرم یه مقدار کچلی داره از همون شکستگی. 》Alireza Morgan《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ادعای وال استریت ژورنال: ایران یک کشتی پشتیبانی متعلق به یک شرکت امنیتی چین را در نزدیکی تنگه هرمز توقیف کرد
+
+
+🔹وال استریت ژورنال مدعی شد: ایران یک کشتی پشتیبانی متعلق به یک شرکت امنیتی چین را در نزدیکی تنگه هرمز توقیف کرد
+
+🔹این اقدام به نظر می‌رسد نشانه‌ای باشد مبنی بر اینکه ایران حتی برای کشتی‌هایی که از طرف چین حرکت می‌کنند، اجازه حفاظت مسلحانه نمی‌دهد.
+
+🔹این اولین توقیف یک کشتی امنیتی خصوصی از زمان آغاز جنگ بین آمریکا و ایران است. این حادثه همچنین در زمان حساسی رخ داد.
+
+🔹مالک کشتی، شرکت سینوگاردز (Sinoguards Marine Security)، اعلام کرد که مقامات ایرانی این کشتی را روز پنج‌شنبه توقیف کردند، همان روزی که ترامپ نشستی با شی جین پینگ، رهبر چین، در پکن برگزار کرد.
+
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر از چندگاهی مچ خودمو درحال ریلز دیدن میگیرم. بی پروای فقیر.
+
+• ST •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلگرام تو این سیزده سال، به اندازه‌ی یک روز پیام‌رسان‌های داخلی قطعی و اختلال نداشته.
+
+• ژنرال •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به اکسیوس: من هنوز معتقدم که ایران خواهان توافق است و منتظر ارسال پیشنهاد به‌روز شده از سوی آنها هستم • OPT • @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس به نقل از مقام‌های آمریکایی گزارش داد مذاکرات با ایران به بن‌بست رسیده، اما ترامپ همچنان خواهان توافق با تهران است و در صورت رد خواسته‌هایش، گزینه نظامی را ترجیح می‌دهد • OPT • @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498985
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498985_1779045731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفاقت پسرا :)))))))))))
+
+• Nahan •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498984
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_498984_1779045731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین قیمت سکه و طلا
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یدیعوت آحارونوت، به نقل از یک منبع اسرائیلی: اسرائیل در حال آماده‌سازی برای کنترل ناوگان آزادی است که هفته گذشته از ترکیه حرکت کرده و به سمت نوار غزه می‌رود
+
+🔹ما کنترل کشتی‌های ناوگان آزادی را به دست خواهیم گرفت و شرکت‌کنندگان را به زندانی شناور منتقل خواهیم کرد.
+
+کانال ۱۵ اسرائیل:
+
+نتانیاهو در تلاش برای به تعویق انداختن انحلال کنست (پارلمان اسرائیل) است
+
+او در این راستا، روسای ائتلاف را از وضعیت امنیتی و پیامدهای سیاسی آگاه کرد و گفت: «کارهایی هست که باید تمام شوند.»
+
+• OPT •
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 498982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان: روز جهانی ارتباطات را تبریک می‌گویم پزشکیان در شبکه اجتماعی ایکس نوشت: 🔹‏در روزهای جنگ، فرزندان ما در ارتباطات و فناوری اطلاعات، شبانه‌روز ایستادند تا ارتباطات و خدمات حیاتی کشور پایدار بماند. دسترسی باکیفیت و پایدار مردم به خدمات دیجیتال، بخشی…
+</div>
+
+## bbcpersian — post 281322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرنگار اکسیوس به نقل از دو مقام آمریکایی: ترامپ روز سه‌شنبه درباره گزینه اقدام نظامی جلسه خواهد داشت
+
+🔻باراک راوید، خبرنگار اکسیوس به نقل از دو مقام آمریکایی گزارش داد که انتظار می‌رود دونالد ترامپ روز سه‌شنبه جلسه‌ای در «اتاق وضعیت» کاخ سفید با تیم ارشد امنیت ملی خود برگزار کند تا گزینه‌های اقدام نظامی را مورد بررسی قرار دهد.
+
+اتاق وضعیت از اتاق جلسات کاخ سفید است که مجهز به امکانات ارتباط مستقیم رئیس‌جمهور آمریکا با فرماندهی نیروهای این کشور در سراسر جهان است.
+
+این ساعتی پس از آن است که آقای ترامپ در شبکه اجتماعی خود بار دیگر تهدید کرد که فرصت برای ایران در حال تمام شدن است و اگر سریع برای توافق صلح اقدامی نکند،‌ «چیزی برایش باقی نمی‌ماند.»
+
+باراک راوید در شبکه ایکس نوشت که آقای ترامپ به او گفت: ‌‌‌‌‌‌‌‌‌«ما می‌خواهیم به توافق برسیم. آنها در نقطه‌ای که ما می‌خواهیم نیستند. باید به این نقطه برسند وگرنه به شدت ضربه خواهند خورد و آنها این را نمی‌خواهند.»
+
+بنیامین نتانیاهو،‌ نخست وزیر اسرائیل پیشتر گفته بود قرار است امروز،‌ با دونالد ترامپ تلفنی گفت‌وگو کنند.
+https://bbc.in/4nT41Gh
+@BBCPersian
+</div>
+
+## Lichargoo — post 24898
+
+<div align="center">
+  <img src="telegram/content/Lichargoo_24898_1779045732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاره شدم😂😂😂😂
+
+
+@Lichargoo
+</div>
+
+## Pesari_Ke_Konie — post 44956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه که بودم
+فکر میکردم فساد اداری یعنی :
+کامندای اداره اونجا همدیگر رو میکنن
+الان میگم : ای کاش همدیگر رو بکنن
+اینا در واقع دارن ما رو میکنن
+
+@Pesari_Ke_Konie
+</div>
+
+## Tans_Footbali — post 236374
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236374_1779045733.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: ترامپ با آزادسازی دارایی‌های بلوکه شده مخالفت کرده
+
+💛@Tans_Footbali
+</div>
+
+## Bad_chaneli — post 39514
+
+<div align="center">
+  <img src="telegram/content/Bad_chaneli_39514_1779045733.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی به درک واصل شدگان در یک قاب
+
+@Bad_chaneli
+</div>
+
+## hamclasixii — post 75410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 #فوری | برگزاری حضوری آزمون‌ پایه‌های هفتم تا دهم در همدان
+
+🔹در دوره اول متوسطه، پایه‌های هفتم، هشتم، نهم و دهم با مجوز شورای تأمین به‌صورت حضوری برگزار می‌شود، اما درباره پایه‌های یازدهم و دوازدهم، استان منتظر اعلام تصمیم نهایی از سوی ستاد کشوری است.
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11513
+
+<div align="center">
+  <a href="telegram/content/withyashar_11513_1779045734.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## withyashar — post 11511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما می‌خواهیم توافق کنیم. آن‌ها جایی که ما می‌خواهیم نیستند؛ باید به آن نقطه برسند، وگرنه ضربه سختی خواهند خورد، و آنها این را نمی‌خواهند
+@withyashar
+</div>
+
+## withyashar — post 11510
+
+
+
+
+---
 📅 بروزرسانی: 1405/02/27 21:31
 ---
 
