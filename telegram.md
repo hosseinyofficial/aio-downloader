@@ -7,6 +7,805 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:28
+---
+
+## persian_trend_official — post 14453
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14453_1779134302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اینم نتیجه رفتار و عملکرد دونالد ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب :
+
+
+https://castbox.fm/vd/946653632
+</div>
+
+## persian_trend_official — post 14451
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14451_1779134303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای انفجار در سلیمانیه عراق
+گویا سپاه دوباره به مقر پژاک حمله کرده
+</div>
+
+## persian_trend_official — post 14450
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14450_1779134303.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇦🇫 حداقل دو نفر کشته شده‌اند و چندین نفر دیگر در یک وضعیت تیراندازی فعال در مرکز اسلامی سن دیگو، کالیفرنیا زخمی شده‌اند. ویدیوی بالا شخصی را در یک استخر خون پس از ظاهراً تیر خوردن نشان می‌دهد.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14449
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14449_1779134304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیراندازی در یک مرکز اسلامی در آمریکا
+
+🔸رسانه‌ها روز دوشنبه از حضور یک فرد مسلح و تیراندازی در مرکز اسلامی سن دیگو خبر می‌دهند.
+
+🔹پلیس سن دیگو از مردم خواست که از حضور در این منطقه خودداری کنند.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14448
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14448_1779134304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## persian_trend_official — post 14446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند قشم علیه ریزپرنده‌ها 💢 در پی فعالیت پدافند در جزیره قشم، خبرنگار تسنیم از منابع مطلع کسب اطلاع کرد که پس از مشاهده ریز پرنده‌ها در آسمان جزیره، پدافند در جهت نابودی اهداف متخاصم فعال شد. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین…
+</div>
+
+## persian_trend_official — post 14445
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14445_1779134305.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند قشم علیه ریزپرنده‌ها
+
+💢 در پی فعالیت پدافند در جزیره قشم، خبرنگار تسنیم از منابع مطلع کسب اطلاع کرد که پس از مشاهده ریز پرنده‌ها در آسمان جزیره، پدافند در جهت نابودی اهداف متخاصم فعال شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وضعیت کم سابقه‌ی آسمان منطقه، از نظر خلوت بودن. (در عکس اول فقط پرواز های نظامی آمریکا و در عکس دوم تمام پرواز های نظامی) 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14442
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14442_1779134305.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## persian_trend_official — post 14441
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14441_1779134306.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## persian_trend_official — post 14440
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14440_1779134306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات جدی اکنون در حال انجام است و آن‌ها معتقدند به‌عنوان رهبران و متحدان بزرگ، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق، مهم‌تر از همه، شامل «عدم دستیابی ایران به سلاح هسته‌ای» خواهد بود.
+
+💢بر اساس احترامی که برای رهبران یادشده قائلم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک ارتش، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده علیه ایران را فردا انجام ندهند، اما در عین حال به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، آماده اجرای یک حمله کامل و گسترده علیه ایران در کوتاه‌ترین زمان ممکن باشند.
+
+▪️از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال اعلام کرد که حمله برنامه‌ریزی‌شده به ایران که برای فردا در نظر گرفته شده بود را لغو کرده زیرا «مذاکرات جدی» در حال انجام است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال اعلام کرد که حمله برنامه‌ریزی‌شده به ایران که برای فردا در نظر گرفته شده بود را لغو کرده زیرا «مذاکرات جدی» در حال انجام است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14437
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14437_1779134307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢پیت هگست وزیر جنگ آمریکا در حال تقلید مدل صحبت و صدای ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14436
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14436_1779134308.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جمهوری اسلامی سفر بدون ویزا برای لبنانی‌ها را اعلام کرد.
+
+سفارت جمهوری اسلامی در لبنان اعلام کرد شهروندان لبنانی دارنده گذرنامه عادی می‌توانند برای سفرهای گردشگری یا زیارتی بدون نیاز به ویزا وارد ایران شوند.
+
+لبنانی‌ها می‌توانند هر شش ماه یک‌بار بدون ویزا به ایران سفر کنند.
+
+مدت اقامت در این سفرها حداکثر ۱۵ روز تعیین شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14435
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14435_1779134308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علی‌حسین قاضی‌زاده:
+
+از قشنگی‌های شبکه ایکس اینه که مدیر حکومتی که از بندبندانگشتان مدیرانش خون می‌چکه بیاد اینجا از برخورد خشن، تمامیت‌خواهی، فحاشی و استبداد گله کنه.
+اون هم در شرایطی که اینترنت رو بر روی ۹۰ میلیون ایرانی بستند‌ و سر تیربار رو سمت مردم گرفتند.
+اینها وقیح نیستند. لغت تازه‌ای باید در زبان فارسی برای این جماعت ساخته بشه.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14434
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14434_1779134309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️نمایش و استفاده دوباره از اسلحه در برنامه زنده صداوسیما
+
+💢اینبار هدف گیری و شلیک به سمت تصویر دونالد ترامپ به یاد بچه های مظلوم جزیره اپستین ‼️
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 499156
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499156_1779134310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکست ایلان ماسک در دادخواست علیه OpenAI؛ هیات منصفه: دیر شکایت کردی
+
+🔹رویترز نوشت، هیات منصفه فدرال در اوکلند کالیفرنیا روز دوشنبه به نفع OpenAI رای داد. قاضی اعلام کرد شواهد «قابل توجهی» برای تأیید نظر هیات منصفه وجود دارد.
+
+🔹ماسک که در دادگاه خود را «احمقی» خواند که ۳۸ میلیون دلار رایگان داده بود، در شکایت خود مدعی شده بود OpenAI از مأموریت اولیه‌اش خارج شده و با فریب او از این شرکتِ «به نفع بشریت» نهایتاً نهادی سودآور ساخته است.
+
+🔹اما هیات منصفه پس از حدود ۹۰ دقیقه بررسی رأی داد که این شکایت به دلیل گذشت زمان (مرور زمان)قابل رسیدگی نیست.
+
+🔹این رأی یک پیروزی حقوقی بزرگ برای OpenAI محسوب می‌شود؛ شرکتی که در آستانه عرضه سهام با ارزشی حدود ۱۰۰۰ میلیارد دلار است.
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله تروریستی پژاک به معدن در سقز؛ آتش‌زدن تجهیزات و باج‌گیری با گروگان‌گیری نگهبانان 🔹بامداد امروز، گروهک تروریستی پژاک با سه دستگاه خودرو به معدن «میرگه نقشینه» در سقز حمله کرد. 🔹 مهاجمان با بستن دست و پای دو نگهبان معدن و خاموش کردن تلفن‌هایشان، تجهیزات…
+</div>
+
+## OfficialPersiaTwiter — post 499154
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499154_1779134311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا دوباره هفته دیگه ترامپ میگه من به درخواست گینه بیسائو، کنگو و دزدان دریایی سومالی بمباران ایران رو لغو کردم اونا به شدت مشتاق توافقن *Sina* @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری ادعای ترامپ: حمله به ایران را که قرار بود فردا انجام دهم به تعویق انداختم. من توسط امیر قطر تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی محمد بن سلمان آل سعود و رئیس امارات متحده عربی محمد بن زاید آل نهیان درخواست شدم که حمله نظامی برنامه‌ریزی‌شده‌مان…
+</div>
+
+## OfficialPersiaTwiter — post 499152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان شما دو تا جنگ رو از سر گذروندید هنوز نمیدونید که صدای شروع جنگ با بمبه نه پدافند؟ *Iman* @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹پدافند هوایی جزیره قشم فعال شد./مهر *OPT* @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499150
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499150_1779134311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+ادعای ترامپ: حمله به ایران را که قرار بود فردا انجام دهم به تعویق انداختم.
+
+من توسط امیر قطر تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی محمد بن سلمان آل سعود و رئیس امارات متحده عربی محمد بن زاید آل نهیان درخواست شدم که حمله نظامی برنامه‌ریزی‌شده‌مان به جمهوری اسلامی ایران که برای فردا تعیین شده بود را به تعویق بیندازم، زیرا مذاکرات جدی در جریان است و به نظر آن‌ها به عنوان رهبران بزرگ و متحدان، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین تمام کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق شامل این نکته مهم خواهد بود که هیچ سلاح هسته‌ای برای ایران وجود نخواهد داشت!
+🔹بر اساس احترامی که برای رهبران مذکور قائلم، به وزیر دفاع، پیت هگزت، رئیس کمیته مشترک رؤسای ستاد، ژنرال دنیل کین و نیروهای مسلح ایالات متحده دستور دادم که ما فردا حمله برنامه‌ریزی‌شده به ایران را انجام ندهیم، اما همچنین به آن‌ها دستور دادم که آماده یک حمله تمام‌عیار و گسترده به ایران در هر زمانی باشند اگر توافق قابل قبولی حاصل نشود. از توجه شما به این موضوع سپاسگزارم!
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مصاحبه با نیویورک پست اعلام کرد که در حال حاضر نمیخواهد هیچ امتیازی به ایران بدهد و ایران میداند که به زودی چه اتفاقی خواهد افتاد! *OPT* @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹پدافند هوایی جزیره قشم فعال شد./مهر
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499147
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499147_1779134312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی از ترامپ در مورد ادعای منابع منطقه‌ای مبنی بر اینکه ایران سعی دارد در هر دو موضوع هسته‌ای و بازگشایی تنگه هرمز، واشنگتن را «خسته کند»، سوال شد، ترامپ گفت: «این را نشنیده‌ام». او گفت: «نمی‌توانم در این مورد با شما صحبت کنم.» ترامپ افزود «این یک مذاکره…
+</div>
+
+## OfficialPersiaTwiter — post 499146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قوه قضائیه: جدیدترین اخبار از توقیف اموال و دارایی‌های چهره‌های همکار دشمن آمریکایی صهیونیستی 🔹اموال و حساب‌های بانکی مهناز افشار، مزدک میرزایی، نیکی کریمی، سینا سرلک، مسعود شجاعی و مسترتیستر توقیف شد. 🔹طی هفته‌های گذشته در راستای قانون تشدید مجازات جاسوسی…
+</div>
+
+## OfficialPersiaTwiter — post 499145
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499145_1779134312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بات‌های تلگرام از امروز باهم حرف می‌زنند
+
+🔹تلگرام قابلیت جدیدی اضافه کرده که بات‌ها می‌توانند مستقیم با یکدیگر صحبت کنند.
+
+🔹این ویژگی به بات‌ها اجازه می‌دهد کارها را به‌صورت خودکار و زنجیره‌ای انجام دهند، مثلاً یک ربات اطلاعات را جمع کند، ربات دوم آن را تحلیل کند و ربات سوم نتیجه را بدهد.
+
+🔹توسعه‌دهندگان حالا می‌توانند شبکه‌ای از بات‌ها بسازند که مثل یک تیم با هم همکاری کنند.
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499144
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499144_1779134313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی پیت هگزث، وزیر جنگ آمریکا صدای ترامپ را تقلید می‌کنه
+
+*Star*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ملی آمریکا (ان‌پی‌آر): عکس‌ها و ویدیوهای دریافتی از فرودگاه بین‌المللی تل‌آویو نشان می‌دهد که حدود ۴۰ تا ۵۰ فروند تانکر هوایی (هواپیمای سوخت‌رسان) نیروی هوایی آمریکا در محوطه پارکینگ فرودگاه حضور دارند. در چند هفته گذشته، حدود ۲۰ هواپیمای نظامی در…
+</div>
+
+## OfficialPersiaTwiter — post 499142
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499142_1779134314.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاکان فیدان، وزیر امور خارجه ترکیه: من مشکلی اصولی با موافقت طرف ایرانی برای رعایت شرایط لازم در مذاکرات هسته‌ای نمی‌بینم. اختلافات بیشتر درباره این است که چه چیزی در ازای آن دریافت خواهد شد، چگونه و به چه ترتیبی دریافت می‌شود، و چه شرایط اضافی همراه آن…
+</div>
+
+## OfficialPersiaTwiter — post 499141
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499141_1779134316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببین ما میگیم پول نداریم، یعنی پول نداریم رشد کنیم، ماشین بخریم، ماشین عوض کنیم، یه حرکتی بزنیم، یه مسافرت درستی بریم،
+چس تومن درمیاریم میگیم خب ما که با این به جایی نمیرسیم میریم کافه
+
+* Reyhane *
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تریتا پارسی معاون اندیشکده آمریکایی کوئینسی:
+
+🔷ترامپ ممکن است آسیب به منافع استراتژیک آمریکا را تحمل کند، اما نسبت به تهدیدها علیه امور مالی شخصی خود حساس است.
+
+منطق این است که هزینه شخصی ترامپ را افزایش دهید، ممکن است او حاضر شود یک موضع مذاکراتی واقع‌بینانه اتخاذ کند./انتخاب
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499139
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499139_1779134316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باید طوری ایران را بمباران کنیم که جانشان به لب برسد! / ریک اسکات، سناتور آمریکایی:
+
+🔹ترامپ دارد جانانه تلاش میکند، آیا او میخواهد ما با یک سلاح هسته‌ای از بین برویم؟ قطعاً نه. پس او کار درستی را انجام میدهد که مطمئن شود همه ما با سلاح هسته‌ای کشته نمی‌شویم.
+
+🔹به نظر من کاری که باید انجام شود این است که ترامپ باید وارد عمل شود و چنان ایران را بمباران کند که جانشان به لب برسد.»
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281395
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281395" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پادکست برنامه جام جهان‌نما دوشنبه ۲۸ اردیبهشت ۱۴۰۵
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@BBCPersian
+</div>
+
+## bbcpersian — post 281394
+
+<div align="center">
+  <a href="telegram/content/bbcpersian_281394_1779134318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم دوشنبه ۲۸ اردیبهشت ۱۴۰۵
+@BBCPersian
+</div>
+
+## bbcpersian — post 281393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ می‌گوید که قرار بود فردا به ایران حمله نظامی کند اما به درخواست امیر قطر، ولیعهد عربستان و امارات متحده عربی این حمله را به تعویق انداخته است. او در پستی در شبکه اجتماعی تروث سوشال نوشت: «از من خواسته شده است حمله نظامی برنامه‌ریزی‌شده ما علیه…
+</div>
+
+## bbcpersian — post 281392
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281392_1779134320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ می‌گوید که قرار بود فردا به ایران حمله نظامی کند اما به درخواست امیر قطر، ولیعهد عربستان و امارات متحده عربی این حمله را به تعویق انداخته است.
+
+او در پستی در شبکه اجتماعی تروث سوشال نوشت: «از من خواسته شده است حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق بیندازم؛ زیرا مذاکرات جدی اکنون در جریان است و به باور آن‌ها، به‌عنوان رهبران بزرگ و متحدان ما، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.»
+
+او افزود: «این توافق نکته مهمی را در برخواهد داشت: ایران سلاح هسته‌ای نخواهد داشت.»
+
+
+📷 Getty Images
+https://bbc.in/3PpMOY6
+@BBCPersian
+</div>
+
+## bbcpersian — post 281391
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281391_1779134320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دادگاهی در کالیفرنیا شکایت ایلان ماسک، مالک ایکس و تسلا، از شرکت اوپن اِی‌آی، سازنده هوش مصنوعی چت جی‌پی‌تی، را رد کرد.
+
+آقای ماسک ‌هم‌بنیان‌گذار شرکت اوپن اِی‌آی بود و بعدتر این شرکت را متهم کرد که از هدف اولیه‌اش یعنی «خدمت‌رسانی به انسان» عدول کرده است.
+
+هیئت منصفه این دادگاه رای داد که آقای ماسک «خیلی دیر» برای شکایت از سم آلتمن، رئیس اوپن اِی‌آی، اقدام کرده است.
+
+آقای آلتمن و آقای ماسک یکدیگر را به تلاش برای «کسب منفعت مالی» از رشد هوش مصنوعی در سال‌های گذشته متهم کرده‌اند.
+
+آقای ماسک که ثروتمندترین مرد جهان است، در سال ۲۰۱۸ از هیئت‌مدیره اوپن اِی‌آی کناره‌گیری کرد و هوش مصنوعی گروک را برای رقابت با چت جی‌پی‌تی ساخت.
+
+دعوای حقوقی این دو میلیاردر را بسیاری از نزدیک دنبال می‌کنند چرا که معتقدند بر آینده هوش مصنوعی اثرگذار است.
+
+📷 Getty Images
+@BBCPersian
+</div>
+
+## bbcpersian — post 281390
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281390_1779134321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دادگاه متهمان حمله به پوریا زراعتی،‌ مجری شبکه ایران اینترنشنال، در لندن برگزار شد. دو مرد رومانیایی متهم هستند که از طرف حکومت ایران این حمله را انجام دادند. یک رومانیایی دیگر هم در این رابطه بازداشت شده است.
+
+ایران هر گونه دخالت در این جادثه را رد کرده است.
+
+دو سال پیش، آقای زراعتی درمحله ویمبلدون،‌ در جنوب غرب لندن هدف حمله با چاقو قرار گرفت. او از ناحیه پا مجروح شد و چند روز در بیمارستان بستری بود.
+
+به گزارش رویترز،‌ ناندیتو بدیا، ۲۱ ساله، و جورج استانا، ۲۵ ساله، هر دو در دادگاه اتهامات ایجاد جراحت عمدی و غیرقانونی را رد کردند.
+
+دیوید آندری، سومین متهم به دست داشتن در این پرونده که در رومانی دستگیر شده است در این دادگاه محاکمه نشد.
+
+دانکن اتکینسون،‌ دادستان در این دادگاه گفت که این حمله نه سرقت بوده و نه درگیری اتفاقی بلکه «خشونت عمدی و برنامه ریزی شده» بوده و به این افراد، شخص ثالثی که از طرف حکومت ایران عمل می‌کرده، دستور انجام این حمله را داده است.
+
+
+📷 Reuters
+https://bbc.in/4dj0eyg
+@BBCPersian
+</div>
+
+## Lichargoo — post 24905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بابام داشت خاطره تعریف می‌کرد گفت اون موقع که جوون بودم…، گفتم هنوزم جوونی قلبم. گفت وسط حرفم نپر.
+اینم عاقبت خایمالی بی‌جا.
+</div>
+
+## Tans_Footbali — post 236408
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236408_1779134321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما:
+ترامپ واسه پنجمین بار از جنگ مقابل ایران فرار کرد.
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236407
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236407_1779134322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :
+
+از من خواسته شده توسط امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس‌جمهور امارات متحده عربی، محمد بن زاید آل نهیان، که حمله نظامی برنامه‌ریزی شده ما به جمهوری اسلامی ایران که برای فردا برنامه‌ریزی شده بود را به تعویق بیندازم، زیرا مذاکرات جدی در حال انجام است و به نظر آن‌ها، به عنوان رهبران بزرگ و متحدان، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین تمام کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
+
+این توافق شامل، به طور مهم، عدم وجود سلاح‌های هسته‌ای برای ایران خواهد بود! بر اساس احترام من به رهبران مذکور، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و نیروهای نظامی ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی شده به ایران را فردا انجام ندهند، اما به آن‌ها دستور داده‌ام که برای انجام یک حمله کامل و گسترده به ایران در هر لحظه‌ای که توافق قابل قبولی حاصل نشود، آماده باشند.
+
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر :
+پدافند هوایی جزیره قشم فعال شده.
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236405
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236405_1779134322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوشته ترامپ در حالیکه هفته هاست داره ایران رو تهدید میکنه :)))
+
+📝_Serpico_
+
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم :
+
+ترامپ در حمله بعدی اهدافی رو مورد حمله قرار میده که قبلا از حمله بهشون خودداری می‌کرد
+</div>
+
+## Tans_Footbali — post 236403
+
+<div align="center">
+  <img src="telegram/content/Tans_Footbali_236403_1779134323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خزانه‌داری ایالات متحده، مجوزی ۳۰ روزه صادر کرد که به کشورهای آسیب‌پذیر اجازه می‌دهد نفت روسیه‌ای را که در دریا سرگردان مانده است خریداری کنند.
+
+@Tans_Footbali
+</div>
+
+## Bad_chaneli — post 39516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری/خبرگزاری مهر: سامانه های پدافندی در جزیره قشم فعال شدند.
+</div>
+
+## hamclasixii — post 75430
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75430_1779134324.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴املاکی روانی : قرار بود فردا به ایران حمله کنیم! 🔹از سمت رهبران قطر، عربستان و امارات از من خواسته شد که حمله نظامی برنامه‌ریزی‌ شده‌مون علیه جمهوری اسلامی ایران رو که قرار بود فردا انجام بشه ـ متوقف کنم؛ چون مذاکرات جدی اکنون در حال انجامه! 🔹ولی دستور…
+</div>
+
+## hamclasixii — post 75429
+
+<div align="center">
+  <img src="telegram/content/hamclasixii_75429_1779134325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴املاکی روانی : قرار بود فردا به ایران حمله کنیم!
+
+🔹از سمت رهبران قطر، عربستان و امارات از من خواسته شد که حمله نظامی برنامه‌ریزی‌ شده‌مون علیه جمهوری اسلامی ایران رو که قرار بود فردا انجام بشه ـ متوقف کنم؛ چون مذاکرات جدی اکنون در حال انجامه!
+🔹ولی دستور دادم که در صورت نرسیدن به یه توافق قابل‌قبول، آماده اجرای یه حمله کامل و گسترده علیه ایران، در هر لحظه و بدون هیچ تأخیری باشن...
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+۵۰۹ بوست نیاز داریم 🙌🏾
+</div>
+
+## withyashar — post 11590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## withyashar — post 11589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: من به وزیر جنگ، رئیس ستاد مشترک و ارتش امریکا دستور داده‌ام که آماده باشند تا در صورت عدم دستیابی به توافق قابل قبول، حمله‌ای کامل و گسترده و همه‌جانبه به ایران را با کمترین هشدار ممکن انجام دهند این آخرین فرصت ایران برای توافق است
+@withyashar
+</div>
+
+## withyashar — post 11588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## withyashar — post 11587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون استاندار هرمزگان: صدایی که ساعاتی پیش در جزیره قشم شنیده شده است، ناشی از فعال شدن سامانه‌های پدافندی و درگیری با پرنده‌های دشمن بوده است .
+
+وضعیت کاملاً تحت کنترل است و شرایط جزیره قشم کاملا پایدار است./مهر
+@withyashar
+</div>
+
+## withyashar — post 11586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : فرمانده دقیقا همین الان صدای پدافند
+با ۷ شلیک کمتر از یک دقیقه به سمت جنوب کرمان اتفاق افتاد
+بریم که داریم به قاهره نزدیک میشیم
+@withyashar
+</div>
+
+## withyashar — post 11585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : یک پوکرباز خوب دستش را «شو» نمی‌کند، بلکه معمولاً فقط وقتی کارت‌ها را نشان می‌دهد که دست قوی را نشان ‌دهد تا تصویر «بازیکن صادق» بسازد و بعداً راحت‌تر بلوف بزند
+@withyashar
+</div>
+
+## withyashar — post 11584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند در شمال تهران شروع شد
+
+منابع نزدیک به سپاه: انهدام ریزپرنده در شمال تهران
+@withyashar
+</div>
+
+## withyashar — post 11583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله فردا کنسل شد
+
+ترامپ در تروث : از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس‌ امارات متحده عربی، محمد بن زاید آل نهیان، از من درخواست شده است که حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، فعلاً متوقف کنم؛ زیرا اکنون مذاکرات جدی در جریان است و آن‌ها، به عنوان رهبران بزرگ و متحدان ما، معتقدند توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن، بسیار قابل قبول خواهد بود.
+
+این توافق، مهم‌تر از همه، شامل این خواهد بود که ایران هیچ سلاح هسته‌ای نداشته باشد.
+
+بر پایه احترامم به رهبران یادشده، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده به ایران را فردا انجام ندهند. اما همزمان به آن‌ها دستور داده‌ام که در صورتی که توافقی قابل قبول حاصل نشود، آماده باشند تا در هر لحظه حمله‌ای کامل و گسترده علیه ایران را آغاز کنند.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+@withyashar
+</div>
+
+## withyashar — post 11582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدا بخواد به زودی تهران میرسه هر چی که هست 😂🙌🏾
+</div>
+
+## withyashar — post 11581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : یاشارررر
+پدافند اصفهان چند دقیقه فعال شد
+@withyashar
+</div>
+
+## withyashar — post 11580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زرشکیان لو داد میخوان مذاکره کنن:
+
+گفت‌وگو به معنای تسلیم نیست
+
+جمهوری اسلامی با عزت، اقتدار و حفظ حقوق ملت وارد گفت‌وگو می‌شود و به هیچ عنوان از حقوق قانونی مردم و کشور عقب‌نشینی نمی‌کند.
+ما با منطق و با تمام توان، تا پای جان، در خدمت مردم و حافظ منافع و عزت ایران خواهیم بود.
+@withyashar
+</div>
+
+## withyashar — post 11579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : اره الان دوباره مجددا صدا اومد
+جالبه تو دوران جنگ قبلی اصلا قشم پدافند این چنینی نداشت و ما اینجور صدایی رو واسه اولین بار هست تو قشم می‌شنویم
+@withyashar
+</div>
+
+## withyashar — post 11578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : سلام یاشار
+همین الان پدافند قشم بدجووووور زد
+پدافند خود شهر قشم حتی توی جنگ ۴۰ روزه هم کار نکرده بود
+ولی پنج دیقه پیش بدجور شلیک کرد
+@withyashar
+</div>
+
+## withyashar — post 11577
+
+
+
+
+## withyashar — post 11576
+
+
+
+
+## withyashar — post 11575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر فرد اشتباهی جانشین من شود، برای آمریکا فاجعه خواهد بود
+
+رئیس‌جمهور آمریکا در مصاحبه‌ای که روز دوشنبه منتشر شد، گفت اگر پس از پایان دوره ریاست‌جمهوری‌اش «فرد اشتباهی» قدرت را به دست بگیرد، این موضوع برای ایالات متحده فاجعه‌بار خواهد بود.
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 21:32
 ---
 
