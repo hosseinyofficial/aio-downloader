@@ -7,6 +7,697 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 21:32
+---
+
+## persian_trend_official — post 14432
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14432_1779127324.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خزانه‌داری ایالات متحده، مجوزی ۳۰ روزه صادر کرد که به کشورهای آسیب‌پذیر اجازه می‌دهد نفت روسیه‌ای را که در دریا سرگردان مانده است خریداری کنند.
+دولت آمریکا تاکنون حداقل ۳ بار این معافیت موقت خرید نفت روسیه را تمدید/احیا کرده است.
+▪️ ۱۹ مارس ۲۰۲۶
+▪️ ۲۲ آوریل ۲۰۲۶
+▪️ ۱۸ مه ۲۰۲۶
+تمام این تمدیدها به‌صورت دوره‌های ۳۰ روزه صادر شده‌اند.
+
+
+
+🦁Phantom
+🦁
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/7aZKWyXxQog?feature=share»
+</div>
+
+## persian_trend_official — post 14430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/7aZKWyXxQog?feature=share
+</div>
+
+## persian_trend_official — post 14429
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14429_1779127325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰پرزیدنت ترامپ به العربیه :
+کار با عظمتی انجام می‌دهیم، و پیروزی پیش روی ماست.
+
+
+🦁Phantom
+🦁
+
+
+✍@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «ساعت 21 لایو رو آغاز میکنم»
+</div>
+
+## persian_trend_official — post 14427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت 21 لایو رو آغاز میکنم
+</div>
+
+## persian_trend_official — post 14426
+
+<div align="center">
+  <img src="telegram/content/persian_trend_official_14426_1779127326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل:
+
+ایران تنها چند روز، نه هفته‌ها، فرصت دارد تا چیزی به رئیس‌جمهور ترامپ ارائه دهد که بن‌بست را بشکند.
+
+رئیس‌جمهور ترامپ تمایل دارد اقدام نظامی انجام دهد مگر اینکه ظرف چند روز چیزی از ایران دریافت کند.
+
+
+🦁Phantom
+🦁
+
+
+✍persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14425
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14425_1779127327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی یک مستندسازِ ورشکستهٔ سیاسی، سناریوی«ترور شخصیت دکتر #روحانی»را برای دیده‌شدن کارگردانی می‌کند،دیگر مستندساز نیست؛کاسبِ التهاب است. اتهام‌زنی با این ادبیات،نه شجاعت است نه افشاگری؛سقوط اخلاقیِ کسی‌ است که روزی تاریخ شفاهی می‌ساخت و امروز برای دیده‌شدن، تاریخ را تحریف می‌کند.
+
+کامبیز مهدیزاده داماد حسن روحانی !
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14424
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14424_1779127328.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
+با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
+این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
+🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
+https://t.me/boost/persian_trend_official
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14423
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14423_1779127329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷ایران از شرکت‌های بزرگ فناوری آمریکا از جمله گوگل، مایکروسافت، متا و آمازون درخواست دریافت هزینه مجوز برای «کابل‌های اینترنت زیرآبی» واقع در تنگه هرمز و خلیج فارس کرده است.
+
+🐣
+🪙
+🛒
+🖥
+🖥
+
+
+🇮🇷سپاه پاسداران تهدید کرده است که در صورت عدم رعایت مقررات محلی توسط این شرکت‌ها، ترافیک را محدود خواهد کرد که ممکن است «اتصال داده‌ها بین اروپا، آسیا و خاورمیانه را مختل کند».
+
+کابل‌های عبوری از تنگه هرمز و دریای سرخ ۱۷٪ از ترافیک جهانی را حمل می‌کنند.
+
+
+🦁Phantom
+🦁
+
+
+🌏@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## persian_trend_official — post 14422
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14422_1779127329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌توی این روزا که بازار فروش vpn داغه
+یه تیم که پشتیبانی خوبی داشته باشه و خدماتش گارانتی داشته باشه کم پیدا میشه
+
+تراست vpn همه اینارو داره و من با خیال راحت معرفیش می‌کنم
+
+همین الان برای خرید بهشون پیام بدین
+
+@trusstvpnn_admin
+@trusstvpnn_admin
+@trusstvpnn_admin
+</div>
+
+## persian_trend_official — post 14421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+*هنوز جنگ تموم نشده
+</div>
+
+## OfficialPersiaTwiter — post 499138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل مدعی شد: ترامپ بزودی با اعضای کابینه خود جلسه اضطراری برای پایان دادن به اوضاع ایران برگزار میکند. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله:
+
+یک جنگندهٔ اسرائیلی را با موشک زمین به هوا هدف قرار دادیم / انتخاب
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برادرزاده‌م با بغض برگشته بهم میگه عمه جوجه‌م مرد
+پرسیدم چرا؟
+یهو با لحن جدی گفت حواسم نبود پام رفت روش
+ازش عذرخواهی کردم ولی خب دیگه مرد :)))))
+
+* سلنوفیل *
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499135
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499135_1779127330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفر پوتین به چین در هفته‌ی آینده 🔹انتظار می‌رود پوتین در تاریخ ۲۰ مه به پکن سفر کند، تنها چند روز پس از اجلاس شی جین‌پینگ با ترامپ. 🔹این سفر یک روزه، بازدیدی معمولی بدون مراسم بزرگ خواهد بود. 》OPT《 @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499134
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای اکسیوس به نقل از مقام ارشد آمریکایی: ما واقعاً پیشرفت چندانی نداریم. امروز در نقطه بسیار حساسی قرار داریم. وقت آن رسیده که ایرانی‌ها کمی انعطاف نشان دهند. ما به یک گفتگوی واقعی، محکم و جزئی [در مورد برنامه هسته‌ای] نیاز داریم. اگر قرار نیست این اتفاق…
+</div>
+
+## OfficialPersiaTwiter — post 499133
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499133_1779127332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹شبکه ۷ اسرائیل: امریکن ایرلاینز توقف پروازهای مسیر نیویورک به تل‌آویو را تا سال ۲۰۲۷ تمدید کرد
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499132
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499132_1779127333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹بارش برف در توچال در پنجاه‌ونهمین روز بهار
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز با یه خانومی تو راهروی اتاق سونوگرافی هی داریم تند تند راه میریم که جیشمون بگیره، بعد اصلا نمیخنده.
+خانوم خنده دار نیست؟ ما هردومون میخوایم جیش داشته باشیم یه لبخند بزن بدفاز
+
+*باراکو*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499130
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499130_1779127335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسی رکورددار بازی در جام‌جهانی
+
+🔹لیونل مسی با انجام ۲۶ بازی، رکورددار بیشترین تعداد حضور در تاریخ رقابت‌های جام جهانی محسوب می‌شود.
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔷 شبکه CNBC با استناد به یک منبع آمریکایی: گزارش رسانه‌های ایرانی مبنی بر اینکه آمریکا در جریان مذاکرات با برداشتن تحریم‌ها از نفت ایران موافقت کرده است، نادرست است
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔷 وزیر خزانه داری آمریکا: مجوز موقت ۳۰ روزه برای خرید نفت روسیه صادر شد/تسنیم
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499127
+
+<div align="center">
+  <a href="telegram/content/OfficialPersiaTwiter_499127_1779127336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلان ماسک :
+قطعا تا 10سال آینده، حدود 19٪ از کل مسافت‌هایی که مردم طی می‌کنن، توسط هوش مصنوعی و ماشین‌های خودران انجام میشه؛
+در نتیجه، اینکه آدم خودش پشت فرمون بشینه و رانندگی کنه، تا اون موقع به یه چیز نسبتاً خاص و نیش تبدیل میشه، چون ماشین خودش تو رو جابه‌جا می‌کنه.
+فکر می‌کنم ربات‌های انسان‌نما هم تقریباً همه‌جا حضور داشته باشن، به نظرم خیلی خفن میشه، چون کیه که دلش نخواد C-3PO و R2-D2 شخصی خودش رو داشته باشه؟ البته حتی بهتر از اونا. فکر می‌کنم همه حداقل یکی، شاید حتی دوتاش رو بخوان.
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدار وزیر کشور پاکستان با عراقچی 🔹سید محسن نقوی وزیر کشور پاکستان عصر امروز دوشنبه با عراقچی دیدار و گفت‌وگو کرد. *OPT* @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499125
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از دوست دخترت میپرسی کجا بریم؟
+مرد باید از روز قبل لوکیشن رو رزرو کرده باشه مسیر رو حفظ کرده باشه پلی لیست رو با نهایت وسواس انتخاب کرده باشه بعد بره دنبال بانو..!
+
+* ممرضا *
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ملی آمریکا (ان‌پی‌آر):
+
+عکس‌ها و ویدیوهای دریافتی از فرودگاه بین‌المللی تل‌آویو نشان می‌دهد که حدود ۴۰ تا ۵۰ فروند تانکر هوایی (هواپیمای سوخت‌رسان) نیروی هوایی آمریکا در محوطه پارکینگ فرودگاه حضور دارند.
+
+در چند هفته گذشته، حدود ۲۰ هواپیمای نظامی در فرودگاه اسرائیل مشاهده شده بود/انتخاب
+
+*OPT*
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499123
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499123_1779127339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺️ بلومبرگ: ۴ روز است که از خارک بارگیری نفت نمی‌شود و اسکله‌های نفتی کاملاً خالی است • OPT • @OfficialPersiaTwiter
+</div>
+
+## bbcpersian — post 281389
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اکسیوس به نقل از مقام آمریکایی: از نظر کاخ سفید پاسخ جدید ایران برای توافق صلح کافی نیست
+
+سایت خبری اکسیوس به نقل از یک مقام بلندپایه آمریکا و یک منبع آگاه گزارش داده است که کاخ سفید پیشنهاد جدید ایران را دریافت کرده است اما به عقیده کاخ سفید این پاسخ برای حصول توافق صلح کافی نیست.
+
+این مقام آمریکایی که نامش ذکر نشده است، به اکسیوس گفت که اگر ایران مواضعش را تغییر ندهد آمریکا مجبور خواهد شد مذاکرات را «از طریق بمباران» ادامه دهد.
+
+به گفته این مقام، پیشنهاد جدید ایران که روز یکشنبه از طریق میانجیگران پاکستانی به آمریکا منتقل شده است، فقط تغییراتی «نمادین و جزئی» با پاسخ قبلی ایران دارد.
+
+در حالی که رسانه‌های ایران گزارش داده‌اند که آمریکا با لغو برخی تحریم‌های نفتی در جریان مذاکرات موافقت کرده است، این مقام آمریکایی گفت که هیچ تحریمی «مجانی» و بدون اقدام متقابل از سوی ایران لغو نخواهد شد.
+
+اکسیوس از این مقام نقل کرده است که «پیشرفت چندانی صورت نگرفته است. به نقطه‌ای بسیار جدی رسیده‌ایم. آنها تحت فشارند که به شکلی درست پاسخ بدهند.»
+
+«وقت آن رسیده است که ایرانی‌ها کمی شیرینی بدهند. ما به گفت‌و‌گویی محکم و با جزئیات (در مورد برنامه هسته‌ای) نیاز داریم. اگر این اتفاق نیفتد از طریق بمباران صحبت خواهیم کرد که واقعا مایه تاسف خواهد بود.»
+
+در همین حال خبرگزاری رویترز از یک مقام بلندپایه ایرانی که نامش ذکر نشده، نقل کرده است که آمریکا مواضعش را در مورد برخی مسائل «نرمتر» کرده است.
+
+این مقام ایرانی به رویترز گفته که آمریکا موافقت کرده است که یک چهارم دارایی‌های توقیف شده ایران به ارزش ده‌ها میلیارد دلار را آزاد کند.
+
+این منبع ایرانی همچنین گفت که آمریکا در مورد اجازه دادن به ایران برای ادامه فعالیت‌های صلح‌آمیز هسته‌ای زیر نظر آژانس بین‌المللی انرژی اتمی انعطاف بیشتری نشان داده است.
+
+https://bbc.in/4wD3mfW
+@BBCPersian
+</div>
+
+## bbcpersian — post 281388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻انتشار تصاویری از آموزش کار با اسلحه یا مسابقات آمادگی دفاعی در تجمعات شبانه حامیان جمهوری اسلامی ایران واکنش‌برانگیز شده است. در این تصاویر از غرفه‌هایی در بعضی مساجد و میدان‌ها، کار با سلاح انفرادی به شهروندان، زنان، نوجوانان و حتی کودکان هم آموزش داده می‌شود.
+
+دو روز پیش هم اسلحه به‌دست گرفتن مجریان‌ چند برنامه در صداوسیما و آموزش تلویزیونی کار با سلاح‌های انفرادی انتقادهایی را در بعضی رسانه‌های ایران برانگیخت.
+
+این آموزش‌ها که به سبک درس‌های عملی «آمادگی دفاعی» طرز مسلح کردن و شلیک با سلاح‌های انفرادی را یاد می‌دهد، همزمان با افزایش گمانه‌زنی‌ درباره آغاز دوباره جنگ و عملیات زمینی احتمالی نیروهای متخاصم در خاک ایران است.
+
+گروهی از کاربران در شبکه‌های اجتماعی این آموزش‌ها را «ترویج نظامی‌گری و خشونت در جامعه» دانسته‌اند. بعضی رسانه‌های ایران از جمله روزنامه سازندگی و وبسایت عصر ایران به «پادگان شدن رسانه ملی» انتقاد کرده‌اند.
+
+در مقابل حامیان حکومت این برنامه‌ها را نشانه این دانسته‌اند که «ایران و مردمش بالاترین سطح از اقتدار و آمادگی نظامی» را دارند.
+
+https://bbc.in/4ePspWH
+@BBCPersian
+</div>
+
+## bbcpersian — post 281387
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281387_1779127340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سازمان جهانی کار وابسته به سازمان ملل متحد هشدار داد که جنگ در خاورمیانه بر دستمزدها و شرایط کاری تاثیر منفی خواهد داشت و این تاثیر بسیار فراتر از مناطق درگیر جنگ خواهد بود. سازمان جهانی کار اعلام کرد که خاورمیانه و کشورهای حوزه خلیج فارس و منطقه آسیا و اقیانوسیه بیشترین آسیب را خواهند دید که می‌تواند از دوران همه‌گیری کرونا بدتر باشد.
+
+سانگ هورن لی،‌ اقتصاددان ارشد سازمان جهانی کار و نویسنده این گزارش، گفت: «بحران خاورمیانه، فراتر از خسارت انسانی،‌ یک اختلال کوتاه مدت نیست و می‌تواند اثرات طولانی‌مدت داشته باشد که به‌تدریج به تغییر شکل بازارهای کار منجر شود.»
+
+سازمان جهانی کار در گزارشی که امروز منتشر کرد، پیش‌بینی کرد که این جنگ ممکن است به قیمت از دست رفتن میلیون‌ها شغل تمام شود و دنیا شاهد کاهش دستمزد در ادامه امسال و سال آینده میلادی خواهد بود به‌ویژه برای مهاجرانی که به کشورهای خودشان پول می‌فرستند از جمله در جنوب و جنوب شرقی آسیا.
+
+
+ادامه خبر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 EPA
+https://bbc.in/4diJ6bZ
+@BBCPersian
+</div>
+
+## bbcpersian — post 281386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اتحادیه اروپا برخی تحریم‌های سوریه را لغو کرد اما تحریم‌های مرتبط با حکومت اسد را برقرار نگه داشت
+اتحادیه اروپا تحریم‌ها علیه افراد و نهادهای مرتبط با حکومت سابق سوریه به رهبری بشار اسد را برای یک سال دیگر تمدید کرد اما همزمان به برخی از تحریم‌های حکومت فعلی سوریه، پایان داد.
+
+رفع تحریم‌ها شامل هفت نهاد سوری است، از جمله وزارتخانه‌های دفاع و کشور.
+
+اتحادیه اروپا اعلام کرده که این تصمیم با هدف تقویت تعامل اتحادیه اروپا با سوریه انجام شده است.
+
+اتحادیه اروپا یک سال پیش تمامی تحریم‌های اقتصادی علیه سوریه را با هدف «حمایت از گذار مسالمت‌آمیز و فراگیر این کشور، بهبود وضعیت اجتماعی-اقتصادی و بازسازی» لغو کرد و تحریم‌های مرتبط با حکومت بشار اسد را برقرار نگه داشت.
+
+اتحادیه اروپا در بیانیه‌ای گفت که «بر این باور است که شبکه‌های وابسته به رژیم پیشین اسد همچنان نفوذ خود را حفظ کرده‌اند و خطر تضعیف روند گذار سیاسی و مانع‌تراشی در مسیر آشتی ملی و پاسخ‌گویی را به همراه دارند.»
+
+اتحادیه اروپا اولین بار در سال ۲۰۱۱ و در واکنش به سرکوب خشونت‌آمیز غیرنظامیان از سوی حکومت اسد، تحریم‌هایی را علیه سوریه اعمال کرده بود.
+
+https://bbc.in/4ukERmj
+@BBCPersian
+</div>
+
+## bbcpersian — post 281385
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281385_1779127341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻استاندار خراسان جنوبی از افزایش شدید میزان واردات از افغانستان به ایران از زمان آغاز جنگ آمریکا و اسرائیل با ایران خبر داد.
+
+به گزارش ایرنا، محمدرضا هاشمی گفت که از ابتدای جنگ اخیر میزان واردات از افغانستان به خراسان جنوبی از مسیر گذرگاه مرزی ماهیرود به فراه «۸۴۶ درصد» و از نظر ارزش دلاری ۴۴۱ درصد افزایش داشته است.
+
+به گزارش بی‌بی‌سی دری، به گفته وزارت صنعت و تجارت حکومت طالبان، «پنبه، پیاز، انجیر، زعفران، نوشابه، گیاه‌های طبی و مواد معدنی» از مهمترین اقلام صادراتی افغانستان به ایران است و در مقابل، «نفت و گاز، مواد ساختمانی، فرش، مواد خوراکی، وسایل الکترونیک و انواع شوینده‌ها» از مهمترین کالاهای صادراتی ایران به افغانستان است.
+
+حسین زارعی،‌ مدیرعامل منطقه ویژه اقتصادی خراسان جنوبی، هم به خبرگزاری ایرنا گفت که خدمات مرزی قبلا تا ساعت ۱۶ انجام می‌شد اما با افزایش حجم مراجعه و فعالیت‌ تجاری،‌ ساعت کار خدمات مرزی به ساعت ۱۰ حتی ۱۱ شب افزایش پیدا کرد و همین باعث افزایش قابل توجه میزان صادرات و واردات شده است.
+
+📷 AFP via Getty Images
+https://bbc.in/4uOLJbc
+@BBCPersian
+</div>
+
+## Lichargoo — post 24904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تبریک روز ارتباطات به مردم ایران مثل اینه که واسه یه کچل سشوار بخری
+</div>
+
+## Tans_Footbali — post 236402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های عبری از آغاز جلسه کابینه اسراییل برای بررسی تحولات منطقه و داخل مرزهای فلسطین خبر دادند
+
+این دومین بار در ۲۴ ساعت گذشته است که نتانیاهو با کابینه امنیتی دیدار می‌کند.
+
+@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل :
+
+آمریکا آفر جدید ایران رو هم رد کرد
+
+💛@Tans_Footbali
+</div>
+
+## Bad_chaneli — post 39515
+
+<div align="center">
+  <a href="telegram/content/Bad_chaneli_39515_1779127342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکومت تروریستی : افراد 18 تا 50 سال، هر چه زودتر بیان خودشونو برای سربازی معرفی کنن، اگه نیاین تمام مزایای وابسته به پایان خدمت مثل خروج از کشور، دریافت وام، استخدام توی جای دولتی و... شامل‌تون نمیشه
+
+@Bad_chaneli
+</div>
+
+## hamclasixii — post 75428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴#فوری | مدارس اصفهان می‌توانند حتی آزمونی برگزار نکنند و نمره مستمر را به عنوان نمره نوبت دوم در نظر بگیرند!
+
+مدیرکل آموزش و پرورش استان اصفهان:
+🔹 لازم است موضوع ارزشیابی پایانی را برای اولیا و دانش‌آموزان شفاف‌سازی کنیم که وقتی امتحانات به‌ صورت غیرحضوری برگزار می‌شود، تصمیم‌گیری درباره شیوه ارزشیابی در اختیار شورای مدرسه قرار می‌گیرد و شورا بر اساس عملکرد دانش‌آموز، سوابق آموزشی، مستندات موجود در فرآیند آموزش مجازی و شناخت دبیران از وضعیت تحصیلی دانش‌آموزان، نمره پایانی را تعیین می‌کند.
+🔹 با تصمیم شورای تأمین استان، امتحانات پایه‌های هفتم، هشتم، نهم و دهم و همچنین برخی رشته‌های متوسطه فنی و حرفه‌ای به‌صورت غیرحضوری برگزار خواهد شد تا آرامش بیشتری برای دانش‌آموزان و خانواده‌ها فراهم شود.
+
+📚 @hamclasix 📚
+</div>
+
+## hamclasixii — post 75427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلند شین سریع پاوربانکارو شارژ کنین، تو پمپ بنزینا صف بکشین، دبه‌های آبو پر کنین، کنسرو احتکار کنین؛ که میگن آمریکا آخرین پیشنهاد ایران رو رد کرده.
+
+📚 @hamclasix 📚
+</div>
+
+## withyashar — post 11574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تامین‌اجتماعی: دریافت فیش حقوقی اردیبهشت‌ماه فعلاً مقدور نیست و زمان آن متعاقباً اطلاع‌رسانی خواهد شد.
+@withyashar
+</div>
+
+## withyashar — post 11573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نظام وظیه: ۱۸ تا ۵۰ ساله ها بیایید خودتونو معرفی کنید که اگه جنگ شد بفرستیمتون با آمریکاییا بجنگید، تو محلتی که تعیین شده اگه نیایید تمام مزایاتون که به کارت پایان خدمت مربوطه قطع میشه
+@withyashar
+</div>
+
+## withyashar — post 11572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا یکشنبه میزنم، قول میدم
+</div>
+
+## withyashar — post 11571
+
+<div align="center">
+  <img src="telegram/content/withyashar_11571_1779127344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر نیویورک پست:
+
+ایالات متحده در آستانه از سرگیری نبرد با ایران با تمام توان است!
+@withyashar
+</div>
+
+## withyashar — post 11570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:من از دست تهران «کلافه» نیستم
+
+@withyashar
+</div>
+
+## withyashar — post 11569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار نیویورک‌پست:
+
+هنوز حاضرید اجازه تعلیق فقط ۲۰ سال اورانیوم به ایران بدید؟
+
+ترامپ: من اجازه هیچ چی رو نمیدم!
+@withyashar
+</div>
+
+## withyashar — post 11568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه مقام اسرائیلی امشب به i24NEWS گفت:
+سطح آماده‌باش واسه احتمال از سرگیری جنگ تا آخر همین هفته، فوق‌العاده بالاست.
+@withyashar
+</div>
+
+## withyashar — post 11567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در پاسخ به پرسش نیویورک‌پست درباره ادعاهایی مبنی بر اینکه ایران در مذاکرات هسته‌ای سعی دارد زمان بخرد و منتظر واشنگتن بماند و همچنین موضوع بازگشایی تنگه هرمز، گفت:
+«من چنین چیزی نشنیده‌ام.»
+
+او افزود: «من چیزی در این مورد نمی‌شنوم. نمی‌توانم درباره‌اش با شما صحبت کنم.»
+
+ترامپ ادامه داد: «این یک مذاکره است. نمی‌خواهم احمق به نظر برسم.»
+@withyashar
+</div>
+
+## withyashar — post 11566
+
+<div align="center">
+  <img src="telegram/content/withyashar_11566_1779127345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاخص سفارش کوبیده در اطراف منزل شاهزاده در‌ حومه شهر واشنگتون و در بین پادشاهی و مشروطه خواهان آنجا بالا رفته
+@withyashar
+</div>
+
+## withyashar — post 11565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به نیویورک پست : ایران می‌دونه که به زودی چه اتفاقی براش میوفته، هیچ امتیازی داده نخواهد شد
+@withyashar
+</div>
+
+## withyashar — post 11564
+
+<div align="center">
+  <a href="telegram/content/withyashar_11564_1779127345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داماد صداسیمایی تروریستی : مهریه زنم پهپاده
+@withyashar
+</div>
+
+## withyashar — post 11562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشنگتن پست:
+
+اسرائیل منتظر چراغ سبز آمریکا برای شروع عملیات است
+@withyashar
+</div>
+
+## withyashar — post 11561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: بمب‌ها مذاکره خواهند کرد
+@withyashar
+</div>
+
+## withyashar — post 11560
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به سی‌ان‌بی‌سی:
+
+اظهارات رسانه‌های ایرانی مبنی بر موافقت واشنگتن با لغو تحریم‌های نفتی کذب است، هیچ تحریمی لغو نخواهد شد
+@withyashar
+</div>
+
+## withyashar — post 11559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع «العربیه»:
+
+وزیر کشور پاکستان بعد از آخرین تلاش‌هایش، تهران را ترک کرد.
+@withyashar
+</div>
+
+## withyashar — post 11558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تری یینگست، خبرنگار فاکس نیوز‌ : ما تو آستانه بازگشت به عملیات‌های رزمی تمام‌عیار هستیم
+@withyashar
+</div>
+
+## withyashar — post 11557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری:
+
+ترامپ‌ امشب دستور بمباران را صادر میکند
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 19:28
 ---
 
