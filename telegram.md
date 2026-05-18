@@ -7,6 +7,191 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 03:03
+---
+
+## persian_trend_official — post 14462
+
+<div align="center">
+  <a href="telegram/content/persian_trend_official_14462_1779147214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️ شبتون بخیر 🫶
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## OfficialPersiaTwiter — post 499173
+
+<div align="center">
+  <img src="telegram/content/OfficialPersiaTwiter_499173_1779147215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنچلوتی نیمار را برای جام جهانی به تیم ملی برزیل دعوت کرد
+
+*OPT
+
+@OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای ترامپ: اسرائیل را پیش‌تر از تصمیم برای به تأخیر انداختن حمله به ایران مطلع کردم/انتخاب *OPT* @OfficialPersiaTwiter
+</div>
+
+## OfficialPersiaTwiter — post 499171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای ترامپ درباره «گفت‌وگوهای مهم» با ایران: «این یک تحول بسیار مثبت است، اما خواهیم دید که آیا واقعاً به نتیجه‌ای می‌رسد یا نه. دوره‌هایی را داشته‌ایم که فکر می‌کردیم تقریباً به توافق نزدیک شده‌ایم، اما در نهایت موفق نشدیم؛ با این حال، این بار شرایط کمی…
+</div>
+
+## bbcpersian — post 281415
+
+<div align="center">
+  <img src="telegram/content/bbcpersian_281415_1779147215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دونالد ترامپ، رئیس جمهور آمریکا، در نخستین واکنش به حمله مسلحانه به مسجد جامع شهر سن دیگو آن را «حادثه وحشتناکی» خوانده و گفته به زودی با اعضای کابینه خود به طور جدی جزییات آن را زیر نظر خواهد گرفت.
+
+پلیس سن دیگو و اداره آگاهی فدرال آمریکا - پلیس اف‌بی‌آی - گفته این تیراندازی را تحت عنوان جنایت ناشی از نفرت تحت بررسی دارد؛ اصطلاحی که مترادف تروریسم داخلی است و از احتمال وجود انگیزه‌های نژادپرستانه یا نفرت از قوم یا پیروان مذهب خاصی حکایت دارد.
+
+https://bbc.in/4wt0sdw
+📷Reuters
+@BBCPersian
+</div>
+
+## bbcpersian — post 281414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 این حمله در آستانه عید قربان روی داد
+شیما خلیل - گزارشگر بی‌بی‌سی در کالیفرنیا
+
+تیراندازی امروز ضربه‌ای سنگین به جامعه‌ای وارد کرده که در حال آماده شدن برای یکی از مقدس‌ترین فصل‌های مذهبی و بزرگ‌ترین اعیاد خود است.
+
+تنها چند روز تا عید قربان باقی مانده؛ یکی از دو عید بزرگ مسلمانان که در آن خانواده‌ها جشن می‌گیرند و یاد اطاعت حضرت ابراهیم را گرامی می‌دارند.
+
+این دوره زمانی در تقویم اسلامی بسیار مهم است. در حال حاضر ماه ذی‌الحجه قرار داریم؛ دوازدهمین و آخرین ماه تقویم قمری اسلامی.
+
+این روزها به عنوان ۱۰ روز نخست ذی‌الحجه، از مقدس‌ترین و معنوی‌ترین روزهای سال در اسلام شناخته می‌شوند و جایگاه ویژه‌ای دارند.
+
+این فصل همچنین هم‌زمان با موسم حج است؛ و روز عرفه به عنوان مقدس‌ترین روز سال در نظر گرفته می‌شود.
+
+https://bbc.in/4futvHu
+@BBCPersian
+</div>
+
+## bbcpersian — post 281406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویلیام مک‌لنان، کالین کمپل و جوزی هنت، بخش تحقیقات محلی بی‌بی‌سی
+
+تحقیقات تازه بی‌بی‌سی نشان می‌دهد قاچاقچیان انسان، از مهاجران غیرقانونی می‌خواهند که هزینه عبورشان از کانال مانش را از طریق شبکه‌ای از شرکت‌های ثبت‌شده در بریتانیا پرداخت کنند.
+
+ما به‌طور مخفیانه از کارکنان یک مغازه در جنوب‌شرقی لندن فیلم‌برداری کردیم، در حالی که آن‌ها به پژوهشگر مخفی ما گفتند می‌تواند نزدیک به ۴۰۰۰ دلار پول نقد نزدشان بگذارد تا برای یک قاچاقچی انسان در فرانسه ارسال شود.
+
+در این فروشگاه تلفن همراه در منطقه وولویچ به ما گفته شد: «پول خود را اینجا می‌گذاری. اگر دوستانت [به بریتانیا] رسیدند، نباید برگردی.»
+
+تحقیق سه‌ماهه ما نشان می‌دهد قاچاقچیان چگونه از حساب‌های بانکی شرکت‌های بریتانیایی برای تسهیل عبور با قایق‌های کوچک استفاده می‌کنند؛ موضوعی که به گفته یک کارشناس برجسته جرایم مالی، پیش از این هرگز مشاهده نشده بود.
+
+https://bbc.in/4dvXiwO
+📷 BBC / Tom Nicholson/Getty Images / Kiran Ridley/Getty Images / Tom Nicholson/Getty Images / Mike Kemp/In Pictures via Getty Images / Dan Kitwood/Getty Images
+@BBCPersian
+</div>
+
+## bbcpersian — post 281405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 نگهبان مسجد سن دیگو یکی از قربانیان تیراندازی است
+
+رئیس پلیس سن‌دیگو گفت مرکز اسلامی دارای خدمات امنیتی است و یکی از جان‌باختگان «نگهبان امنیتی شاغل در همین مرکز» بوده است.
+
+او همچنین افزود یک باغبان که در نزدیکی محل حضور داشت هدف تیراندازی قرار گرفته، اما آسیبی ندیده است.
+
+به گفته اسکات وال صحنه حادثه «بسیار آشفته و پرهرج‌ومرج» بوده و حدود ۵۰ تا ۱۰۰ نیروی پلیس در محل مرکز حضور داشته‌اند.
+
+رهبران مذهبی شهر سن‌ دیگو این تیراندازی را محکوم و حمله به یک محل عبادت را نفرت‌انگیز توصیف کرده‌اند.
+
+https://bbc.in/42Hnf7S
+@BBCPersian
+</div>
+
+## Tans_Footbali — post 236423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: ترامپ به اسرائیل اطلاع داد که تاخیر در حمله به ایران تنها دو تا سه روز است.
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انگار نه انگار بیش از ۸۰ روز شده که اینترنت قطعه و چند میلیون نفر به بیکار های جامعه اضافه شدن..
+حتی اگه الان هم وصل کنن بازم ضربه ای که به خیلی از مشاغل وارد شده قابل جبران نیست و عملا نابود شدن..
+
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236421
+
+<div align="center">
+  <a href="telegram/content/Tans_Footbali_236421_1779147216.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پرزیدنت ترامپ: ایران نهایتا ۳ روز زمان داره 
+💛@Tans_Footbali
+</div>
+
+## Tans_Footbali — post 236420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ: اسرائیل را از تصمیم برای به تأخیر انداختن حمله به ایران مطلع کردم
+
+💛@Tans_Footbali
+</div>
+
+## withyashar — post 11617
+
+
+
+
+## withyashar — post 11616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۶ روز مانده تا تولد دونالد ترامپ خردادی دوست داشتنی ۱۴ ژوئن ۲۰۲۶ (۲۴ خرداد ۱۴۰۵) تهران میگیریم ؟ 😬
+@withyashar
+</div>
+
+## withyashar — post 11614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: ترامپ به اسرائیل اطلاع داد که تاخیر در حمله به ایران تنها دو تا سه روز است. @withyashar
+</div>
+
+## withyashar — post 11613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: ترامپ به اسرائیل اطلاع داد که تاخیر در حمله به ایران تنها دو تا سه روز است.
+@withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 01:46
 ---
 
